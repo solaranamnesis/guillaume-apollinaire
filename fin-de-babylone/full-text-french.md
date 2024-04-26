@@ -120,4 +120,30 @@ Ce fut dans un établissement de troisième ordre, fréquenté par la lie du por
 
 « De nombreux prétendants étaient sur les rangs. J'étais l'un d'eux. Tout plein de la fougue dr la jeunesse, j'avais, à la vérité, quelque peu entamé l'héritage de mes pères. J'avais dilapidé au jeu un certain nombre de récoltes. Ah ! si ma modeste propriété se pouvait arrondir des terres magnifiques de ce golfe ! De plus, j'aimais Gyptis. »
 
+« J'avais, je puis le dire, assez habilement mené ma barque. L'âme de la jeune fille n'était pas moins pure que l'eau de la mer qui baigne mon cap, un clair matin de printemps. Je m'abstins donc des plaisanteries grossières auxquelles se livraient couramment mes collègues. Ce n'est point que je déteste les propos un peu libres. Au contraire ! Ces Grecs, avec tous leurs raffinements de langage, leur préciosité, sont en train de gâter le vieil esprit des Gaules. Mais je ne voulais point risquer de blesser ses oreilles ni son sentiment. Je composai même, à cette époque, un gracieux petit poème qui obtint, j'ose le dire, son suffrage. »
+
+« Mon seul malheur est d'être né sur la colline où pousse en plein soleil une lourde vigne ! »
+
+« A Gyptis n'avait confié à personne, même pas à son père, quel était le fiancé de son choix. Elle l'ignorait sans doute elle-même. Le vieux monarque, bon homme, n'éprouvait nullement le besoin de brusquer sa fille. Aussi elle hésitait toujours. Cependant, au jour de la fête de la Mer, elle avait promis de désigner l'heureux élu. »
+
+« C'était la coutume d'inviter au palais royal les ambassadeurs, capitaines de navire ou gros marchands de passage. Le palais, en ce temps, était, du reste, moins luxueux et confortable que les grandes hôtelleries modernes. Des gens venus de l'est avaient précisément débarqué ces derniers jours. Ils apportaient les étoffes de leur pays dont ils avaient offert des échantillons au roi et à sa fille. Le bénévole Nann pria donc leur chef, qui répondait au nom d'Euxène, au banquet. C'était un petit homme laid et insignifiant. Placé auprès de lui, à un bout de table, je m'aperçus à peine de sa présence. Il est vrai que quelques libations du bon liquide doré de ma colline avaient, dès le début, détaché mon esprit des vaines contingences de ce bas monde. »
+
+[Pl. 2. --- L'Évanouissement d'Esther.]()
+
+« Au dessert, Gyptis se leva. Elle tenait en main une coupe, celte coupe même qui avait été par un artiste modelée sur son sein. Il nous était, du reste, loisible de juger de la qualité exacte du travail. Un léger voile flottait sur les épaules de la vierge, un de ces voiles de gaze fine que ces commerçants de l'est avaient offert au roi. Sa poitrine merveilleuse apparaissait par moments et les lignes souples de son corps se devinaient sous les étoffes estivales. C'était, j'ai oublié de vous le dire, en plein été, au cœur de la canicule, que les fêtes de la Mer avaient lieu. Gyptis était si belle, belle pour tous, que me considérant d'ores et déjà comme son légitime propriétaire, j'en éprouvais une légère jalousie. »
+
+« Et, en effet, la jeune fille avait fait le tour de la salle. Elle avait regardé tous les guerriers, ses prétendants, qui s'efforçaient de prendre des poses avantageuses. Elle les avait regardés et, dédaigneuse, avait passé. Elle était arrivée à l'extrémité de la table où modestement je me tenais étendu. Elle s'arrêta devant moi et lentement abaissa la coupe d'or qu'elle tenait élevée. Ah ! quel orgueil, quelle satisfaction m'emplirent le cœur à cet instant ! Je songeais à la déconvenue de mes concurrents, à ma flamme couronnée, à mon cap, à son golfe ! »
+
+--- Prince de Lassiotâh, me dit-elle --- tel était le nom de mon fief --- prends cette coupe.
+
+« Je m'inclinais et cherchais un joli compliment. »
+
+--- Ah ! que n'est-elle emplie de vin ! répondis-je enfin d'un ton que je m'efforçais de faire intelligent et badin.
+
+« Diabolique inspiration ! »
+
+« Le visage de la jeune fille avait eu un imperceptible tressaillement et sa main un recul. »
+
+--- Prends cette coupe, reprit-elle d'un ton lointain et sévère, et donne-la à ton voisin.
+
 ...

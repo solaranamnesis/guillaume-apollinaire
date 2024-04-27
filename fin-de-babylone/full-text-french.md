@@ -407,4 +407,268 @@ Enfin Vietrix découvrit une société charmante qui lui permit de passer agréa
 
 Sopphâ était une grande fille au profil régulier, aux yeux doux, aux cheveux blond-châtain. Son corps, jadis, à Sparte, avait été entraîné, selon les principes de Lycurgue, à tous les exercices. Elle avait pratiqué la culture physique. Mais l'indolence qui était dans la nature de cette poétesse n'avait point tardé de prendre le dessus. Sa chair avait repris les aspects opulents qui lui étaient le mieux favorables, ses seins gonflés, sa croupe puissante et blonde se plaisaient aux repos dans le désordre des divans.
 
+--- Ton philosophe n'est qu'un théoricien comme les autres, dit-elle un jour à Vietrix. L'éducation selon la nature, jeunes gens et jeunes hommes nus, a toujours donné les plus déplorables résultats. L'âge d'or est bien passé. C'est, aujourd'hui, le mystère, c'est-à-dire le désir, qui fait l'amour. Les jeunes gens n'ont pas été attirés vers les filles, mais vers les autres jeunes gens. Et moi je n'aime personne au monde mieux que ma brune esclave Isé qui est devenue peu à peu ma maîtresse.
+
+Et elle caressait l'Égyptienne, dont le corps maigre et brun, souple et musclé, faisait contraste avec le sien et dont les grands yeux noirs fixaient sauvagement l'étranger. Elle la caressait comme on caresse un jeune fauve dont on redoute la morsure.
+
+--- Je vois que vous ne vous ennuyez pas, fit Vietrix. Ah ! la vie du célibataire est bien compliquée par ici !
+
+Il avait entrepris à ses premières visites de leur faire un doigt de cour, mais quelques démonstrations du genre de celles-ci lui en avaient fait passer l'envie. Cependant la poétesse Sopphâ était une âme compatissante, et elle lui fit cadeau pour le voyage d'une de ses domestiques, sa propre camériste, une assez jolie fille de la race des montagnards du nord de la Grèce. Vietrix s'empressa d'en user et abuser. La jeune Iphigénie devint bientôt amoureuse folle de son maître.
+
+---
+
+Les jours de la navigation furent remplis d'agrément. Le ciel était merveilleusement bleu, à l'horizon passaient des îles au profil escarpé et gracieux, la terre ne fut pas un seul jour perdue de vue. Le soir, réunis à l'arrière, sur les coussins que la poétesse avait fait installer, ils causaient ou bien récitaient des vers.
+
+Le répertoire de Vietrix était plutôt religieux et guerrier. Il écoutait avec une étrange curiosité les poèmes brûlants de passion de la courtisane femme de lettres. Sopphâ chantait l'amour d'Isé et toutes les merveilles et tous les spasmes de leurs jolis corps réunis.
+
+---
+
+Mais au troisième jour on fit à bord une singulière découverte. L'aide-cuisinier, un beau vieillard à la barbe fleurie, embarqué en Crète, se découvrit être un vieux Juif que seuls des malheurs de fortune avaient condamné à ce rapatriement misérable. Sopphâ fut enchantée de faire sa connaissance. Elle le tira de sa misérable condition. Personne n'y perdit du reste, car la cuisine trop parfumée du vieil homme était légèrement écœurante. Elle fit vêtir le bon père d'un grand manteau de voyage et lui permit de prendre place sur le gaillard d'arrière, réservé aux passagers.
+
+La venue de ce quatrième compagnon enchanta Vietrix qui, blasé sur son énamourée femme de chambre, éprouvait, sous la douceur énervante de ce ciel d'été, le désir de plus en plus violent de se jeter sur les deux belles filles qui, presque nues et toujours enlacées, paraissaient le narguer des heures entières, de se jeter sur elles et de leur faire sentir, par quelque argument direct, le droit imprescriptible du mâle.
+
+---
+
+Il retrouva une relative paix d'esprit quand le vieillard eut été introduit dans la petite société. Celui-ci se fit bientôt un plaisir de le renseigner sur les pays que le Gaulois devait bientôt visiter.
+
+« Le sort de l'Égypte, de la Phénicie, de ma belle Judée, dépendent aujourd'hui étroitement de Babylone. Babylone rayonne sur le monde. Les rois ont suivi les chars de son triomphe. L'impie, adorateur de Baal, a le pas sur tous les vrais croyants. Est-ce la colère de Jéhovah qui s'est ainsi manifestée ? Je l'espère ... »
+
+Vietrix écoutait fort intéressé. Il recherchait toujours la conversation des vieillards. La vision des jeunes gens est courte. Le vieux Nephtali, tel était le nom de l'Israélite, avait promis de leur réciter quelques-unes des prophéties sacrées de sa nation. Il concevait que Vietrix, avant d'entreprendre sa longue randonnée, fût au courant de l'histoire de ce peuple juif dont les uns lui parlaient avec crainte, les autres avec haine ; race privilégiée, race maudite ? On ne savait au juste, l'histoire de la grande Babylone était du reste liée à celles de Juda et des autres nations orientales depuis pas mal d'années. Vietrix avait déjà entendu dire cela. Le vieillard l'affirmait à nouveau.
+
+[Pl. 4. --- Suzanne au Bain. Surprise par les Vieillards.]()
+
+Sopphâ, la poétesse, prêtait également à l'ordinaire une oreille attentive. Ne saurait-elle tirer de ces récits épiques une fructueuse leçon ? Cependant, la tête indifférente de son esclave noire posée sur son ventre blanc, elle paraissait ce soir un peu nerveuse, agacée ...
+
+[]()
+
+[]()
+
+# Chapitre 6.
+
+## Nabuchodonosor contre les Juifs.
+
+Destinées du peuple juif. --- Jérusalem. --- Le temple. --- Premiers exploits de Nabuchodonosor. --- Nechao. --- Jérusalem menacée. --- Jérémie et Baruch. --- Savantes caresses d'Isé. --- Les prophéties de Jérémie. --- Jérusalem prostituée. --- Nuit d'amour et de littérature.
+
+« Je ne veux point rappeler, commença le vieillard, quelles sont les hautes destinées du peuple juif auquel Jéhovah, le tout-puissant, a daigné tracer lui-même, aux premiers temps du monde, une ligne de conduite. Hélas ! Pourquoi s'en est-il écarté ? Je veux seulement aujourd'hui vous dire comment ce peuple, sur les coutumes et sur l'histoire première duquel je me réserve de t'éclairer, jeune étranger, et vous, poétesse digne d'être chantée par une voix plus éloquente que la mienne, fut amené, à la suite d'une longue guerre, en captivité, et comment je me trouve, moi, en cette pénible situation. »
+
+« Jérusalem, notre capitale, était située au point le plus élevé des montagnes de Judée que l'olivier embellit, sur les anciennes limites des tribus de Benjamin et de Juda. Car nous étions divisés jadis en tribus. Aujourd'hui, comment distinguer ceux de Lévy de ceux de Manassé ? »
+
+« Trois belles collines formaient l'emplacement de Jérusalem, les collines de Sion, d'Acier et de Moria. De tous côtés s'étendaient des constructions immenses. Trois murailles entouraient notre ville. Une seule, la plus ancienne, que David, Salomon et les rois avaient consolidée maintes fois, paraissait inexpugnable. »
+
+« Au sommet du mont Moria se trouvait le temple qui avait été bâti par le roi Salomon. Si tu veux avoir une idée de sa magnificence, sache que l'enceinte centrale, sise au milieu d'un immense parvis, mesurait soixante coudées de longueur du levant au couchant, vingt coudées de large et trente de hauteur. Le mur se composait de trois rangées de pierres de taille, surmontées d'une espèce de balustrade en bois de cèdre. La surface était couverte de fleurs de lys en relief. Sept chaînes, qui entourent cette surface, y formaient une sorte de treillage. A chacun des deux bords des chapiteaux, il y avait, sur une chaîne, cent grenades. Le temple tout entier était couvert de bois de cèdre. »
+
+« Le temple, à l'intérieur, était divisé en deux parties : le devant appelé _Hekal_ et le derrière _Debir_, qui est le saint des saints. Il y avait sur les murs un lambris de bois de cèdre sculpté de chérubins, de branches de palmiers, de coloquintes et de fleurs épanouies. »
+
+« Au milieu du parvis se trouvait le grand autel d'airain. »
+
+« Dans le hekal, devant l'entrée du saint des saints, se dressait l'autel des parfums, en bois de cèdre, couvert de lames d'or, le chandelier à sept branches et la table des pains de proposition. »
+
+« Dans le Debir, il n'y avait que l'arche sainte, aux deux extrémités de laquelle se trouvaient deux chérubins de bois d'olivier sauvage couverts d'or. »
+
+« D'autres palais ornaient notre belle Jérusalem. Le fort de Sion, conquis sur les Jébuscéens, par Joab, général de David, et le palais de Salomon, surnommé la Maison de la forêt du Liban, à cause de la grande quantité de bois de cèdre qui entrait dans sa construction. »
+
+« Toutes ces magnifiques bâtisses et le temple sacré de Jéhovah devaient être détruits de fond en comble ! »
+
+---
+
+« Jeune étranger, tu te diriges vers la grande Babylone, là où mes frères gémissant dans la captivité. Il est un nom qui emplira bientôt les oreilles, car ce nom est fameux des rivages de la Phénicie aux lointaines contrées de l'Inde, celui du roi Nabuchodonosor ! Il n'est pas lieu ici de te conter sa merveilleuse histoire, je veux seulement te dire la part que ce souverain redoutable prit à la destruction de Jérusalem. »
+
+---
+
+« Dans la quatrième année du règne de notre roi Joachim, Néchao, souverain d'Égypte, après avoir soumis successivement tous les peuples qui habitaient en deçà de l'Euphrate, crut pouvoir entreprendre un nouveau siège. Mais au même moment, Nabuchodonosor, alors prince royal de Babylone, associé au gouvernement de son père Nabopalassar, s'avança vers l'Euphrate et rencontra l'armée de Néchao ; il la mit en déroute et obligea le roi d'Égypte à abandonner ses entreprises. »
+
+« Le peuple juif, qui avait craint pour sa propre sécurité en présence des conquêtes de Néchao, se trouva ainsi délivré de l'ennemi le plus direct et célébra la victoire de Nabuchodonosor. Malgré cela, il n'était pas sans inquiétude sur la marche des Chaldéens. »
+
+« Dans l'année qui suivit la défaite de Néchao, Nabuchodonosor s'avança vers les frontières de l'Égypte jusqu'à Peluse, il s'empara de la Syrie, sans toutefois toucher à la Judée, et contraignit les Égyptiens à rentrer dans leurs frontières. C'est alors que la Judée, seule en présence de la puissance chaldéenne, commença à trembler. »
+
+---
+
+« Nous ne sommes pas, nous autres Juifs, un peuple guerrier. Nous sommes des poètes et des gens d'affaires, les uns et les autres peu belliqueux, soumis à la loi divine. J'étais jeune alors, bien jeune, mais j'ai gardé le souvenir de ces jours douloureux. Les années de la souffrance --- elles n'ont pas cessé de s'égrener depuis --- commençaient pour le peuple choisi. »
+
+« Nous vîmes les Rébachites eux-mêmes qui, depuis Jéhu, vivaient sous les tentes de la vie de nomades, obligés de se réfugier dans Jérusalem ! »
+
+« Le danger devenait si pressant que dans le neuvième mois de la cinquième année de Joachim on proclama un jeûne public pour implorer Jéhovah contre les Chaldéens. Jérémie, prévoyant les dangers qui menaçaient sa patrie, profita de cette circonstance pour faire lire par Baruch, dans le parvis du temple, les livres qu'il avait composés l'année précédente contre le développement de la puissance chaldéenne, sur laquelle les conseillers de Joachim semblaient fermer les yeux. Jérémie et Baruch étaient nos deux plus illustres prophètes. Sous leurs doigts la lyre sacrée du poète vibrait harmonieusement. Ces discours firent une grande impression dans le public. On en parla au roi qui ordonna de saisir les manuscrits de Jérémie ; il les fit lire devant lui. Cette lecture exaspéra le monarque qui donna ordre de brûler aussitôt les livres du prophète, puis de mettre en état d'arrestation Jérémie et Baruch. Heureusement parvinrent-ils à se dérober à ses recherches ! »
+
+---
+
+--- Mais, dis-moi, noble vieillard, interrompit Vietrix, quelles étaient ces imprécations que l'éloquent prophète Jérémie lançait ainsi contre les mœurs de son temps ?
+
+Le vieillard parut un peu embarrassé.
+
+--- Je ne suis pas rigoriste, fit-il, et loin de moi l'idée d'attribuer à quelques excès sexuels cette longue série de catastrophes dont nous fûmes victimes. Nous avons, au contraire, par tradition, une véritable vénération religieuse pour celles qui se consacrèrent exclusivement à l'amour. Aussi, mesdames, je vous prie de m'excuser si dans la récitation de ces versets une certaine aigreur apparaît parfois contre l'amoureuse licence. C'était l'opinion des prophètes, au demeurant les meilleurs lils du monde, non tout à fait la mienne. Je leur en laisse la responsabilité.
+
+--- Eh oui, ma petite Isé, fit Sopphâ d'un ton rieur, c'est toujours à nous que l'on s'en prend quand arrive un malheur ... Cela n'a point d'importance ... Pour moi, quoi que l'on dise, je préférerais à tous les discours des grincheux la caresse de ta langue sur la pointe de mes seins ... Va, chérie, ne te gêne pas. Cela n'est-il point d'un galant effet, jeune homme ?
+
+« Et vous digne vieillard, veuillez continuer ... »
+
+Nephtali s'était penché aux bastingages. L'œil perdu dans les constellations, il réfléchit quelques instants, puis, ému, il reprit :
+
+---
+
+« Le Seigneur avait dit à Jérémie : Je rétablirai sur tout le pays, comme une ville forte, une colonne de fer, une muraille d'airain contre le roi de Juda, contre ses chefs, contre ses sacrificateurs et contre le peuple du pays. Ils te feront la guerre, mais ils ne te vaincront pas et je serai avec toi pour te délivrer ! »
+
+« Je me souviens, dit Jéhovah, de l'amour de la jeune Israël, »
+
+« De sa douce affection quand elle était ma fiancée. »
+
+« Elle me suivit jusqu'au désert, dans une terre inculte ... »
+
+« Mais aujourd'hui Israël a dit : Je ne veux plus être dans la servitude. »
+
+« Et ce disant elle commença de se courber comme une prostituée. »
+
+« Elle s'est inclinée devant le temple de tous les Baals. »
+
+« Eux, leurs rois, leurs chefs, leurs sacrificateurs et leurs prophètes, »
+
+« Ils disent au bois : Tu es mon père ! »
+
+« Et à la pierre : Tu m'as donné la vie ! »
+
+« Pourquoi mon peuple insensé a-t-il dit : Nous sommes libres ! »
+
+« La jeune fille oublie-t-elle ses ornements ? »
+
+« La fiancée sa ceinture ? »
+
+« Où ne t'es-tu pas prostituée, Israël ? »
+
+« Tu te tenais sur le chemin, attendant, comme l'Arabe dans le désert attend le voyageur. »
+
+« Je vous ai offert le repentir, je t'ai offert le repentir à toi Israël, comme l'amant à sa maîtresse infidèle. »
+
+« Je vous ai dit : Revenez, enfants rebelles. »
+
+« Jurez : l'Éternel est vivant ! »
+
+« Défrichez un champ nouveau. Mais ne continuez pas de semer parmi les épines. »
+
+« Dites cela, hommes de Juda, habitants de Jérusalem. »
+
+« Dites cela, sinon, à cause de la méchanceté de vos actions, »
+
+« Ma colère éclatera comme le feu. »
+
+« Et s'enflammera sans que rien puisse l'éteindre. »
+
+---
+
+Ainsi le vieillard parlait-il. Et sa voix dans la nuit prenait des accents surhumains. Vietrix goûtait le charme de cette haute poésie sacrée. Et les deux femmes maintenant se tenaient immobiles. La parole merveilleuse avait agi sur elles. La petite Égyptienne elle-même, qui ne comprenait guère, avait pris devant sa maîtresse étendue une pose de recueillement et de respect.
+
+---
+
+« Voici maintenant que sont annoncées par le prophète l'invasion des rois de Babylone, l'arrivée du redoutable Nabuchodonosor : »
+
+--- Je fais venir, dit Jéhovah, du septentrion un malheur.
+
+« Le lion s'élance de son taillis. »
+
+« La destruction des nations est en marche. »
+
+« Tes villes seront ruinées. »
+
+« Couvrez-vous de sacs, pleurez et gémissez. »
+
+« Mes entrailles ! mes entrailles ! je souffre audedans de mon cœur. »
+
+« Le cœur me bat, je ne puis me taire. »
+
+« Tu entends, mon âme, le bruit de la trompette ! »
+
+« Jusqu'à quand entendrai-je ce son ? »
+
+« Nation dévastée, que feras-tu ? »
+
+« Tu te revêtiras de cramoisi, tu te pareras d'ornements d'or. »
+
+« Tu mettras du fard à tes yeux. »
+
+« Mais c'est en vain que tu t'embelliras. »
+
+« Tes amants te mépriseront toujours ! »
+
+« Ils en veulent à ta vie ! »
+
+« J'entends des cris comme ceux d'une femme en travail, »
+
+« Des cris d'angoisse comme dans un premier enfantement. »
+
+« C'est la voix de la tille de Sion ! Elle soupire, elle étend les mains ! »
+
+« Malheureux que je suis, je succombe sous les meurtriers ! »
+
+« La nation qui viendra est une nation forte, une nation ancienne, »
+
+« Une nation dont tu ne connais pas la langue, »
+
+« Et dont tu ne comprendras point les paroles. »
+
+« Son carquois est comme un sépulcre ouvert. »
+
+« Elle dévorera ta moisson et ton pain. »
+
+« Elle dévorera tes fils et tes filles. »
+
+« Elle dévorera tes brebis et tes bœufs. »
+
+« Elle dévorera ta vigne et ton figuier. »
+
+« Alors, vous me craindrez, dit l'Eternel. Vous tremblerez devant moi. »
+
+« Car c'est moi qui ai donné à la mer le sable pour limite. »
+
+« Limite qu'elle ne doit pas franchir ! »
+
+« Ses flots s'agitent, mais ils sont impuissants. »
+
+« Voilà ton sort, Israël, voilà ton sort, puisque tu m'as abandonné. »
+
+« Je vous disperserai comme une paille emportée par le vent du désert. »
+
+« Je relèverai les pans de ta robe jusque sur ton visage, »
+
+« Afin que tu voies ta honte, »
+
+« Toi qui fus ma fiancée. »
+
+« J'ai vu aujourd'hui tes adultères, »
+
+« Tes criminelles prostitutions et sur les collines et dans les champs. »
+
+« J'ai vu tes abominations. »
+
+« Malheur ! Malheur sur toi, Jérusalem ! »
+
+---
+
+Nephtali s'arrêta de parler. Il était tard dans la nuit. Déjà les constellations pâlissaient aux premières lueures du matin. Chacun regagna sa cabine.
+
+Vietrix comptait retrouver dans la sienne la jeune Iphigénie. Il fut déçu d'apprendre qu'elle avait rejoint les autres esclaves sur l'avant. Il n'est de tel que l'amour pour remettre des grandes émotions. Cependant, comme il poussait sa porte, une voix l'appela. C'était celle de Sopphâ.
+
+--- Le vieillard a dit vrai, lui glissa-t-elle à l'oreille. Ses accents ont jeté l'effroi dans mon âme. Ah ! que l'humanité est peu de chose devant les grandes forces de la nature. Et je suis, moi, femme, si faible. Viens, Isé repose, brisée par nos amours et la langueur de cette nuit d'Orient. Viens, j'ai besoin ce soir de l'étreinte forte d'un homme. En tes bras j'oublierai que d'autres maîtres veillent jalousement sur mon humble destin.
+
+Vietrix la suivit sans se faire prier.
+
+« Littérature ! se disait-il cependant. Cela n'est que littérature ! Pourquoi a-t-elle éloigné l'esclave ? »
+
+[]()
+
+# Chapitre 7.
+
+## Conquêtes de Babylone.
+
+Voluptueux secrets des femmes grecques. --- Tristesse d'Isé. --- Retour de Nabuchodonosor. --- Révolte de Sédécias. --- Consultation des devins. --- Prophétie contre Tyr. --- Jérémie et le parti militaire. --- Débordements à Jérusalem. --- Les courtisanes aux abois. --- Les vierges impudiques. --- L'amoureuse du prophète. --- Courroux de Jérémie. --- Châtiment de l'esclave Isé. --- Nuit d'amour compliquée.
+
+Le lendemain soir, Nephtali reprit son récit. Vietrix avait passé une délicieuse journée. Ses membres et son cerveau se ressentaient avantageusement des caresses passionnées de Sopphâ. Car la poétesse connaissait tous les raffinements de la volupté. Elle lui révéla de troublants secrets, de magiques recettes qui prolongent et varient à l'infini les amoureux efforts. Vietrix avait eu l'impression qu'un certain détraquement intellectuel devait être la véritable cause des coutumes unisexuelles de l'altière Sopphâ. Elle s'était donnée entière à lui, comme une vierge que le désir a tourmentée des mois. Mais elle l'avait prié de ne point divulguer leur secret. Évidemment, elle tenait à sa réputation.
+
+---
+
+Nephtali repr son récit. Sopphâ avait revêtu une belle tunique dorienne, transparente et ornée d'étoiles d'or. Isé, selon son habitude, se tenait quasi nue. Elle n'était vêtue que de quelques pierreries rares et portait aux bras et aux chevilles de longs bracelets d'or à têtes de serpents. Il y avait ce soir une douleur dans ses yeux. Ses regards allaient de sa maîtresse à Vietrix, pleins d'anxiété et de trouble. Ceux-ci se préoccupaient seulement de prendre sur les coussins de confortables poses.
+
+---
+
+« En effet, commença Nephtali, les événements s'accomplirent. Nabuchodonosor, qui avait déjà fait une première apparition en Judée, revint deux années plus tard à la tête d'une forte armée. De quels éléments disparates n'était-elle pas composée ! elle contenait, avec son noyau d'infanterie chaldéenne et babylonienne, des escadrons de cavalerie scythe et mède et même des hoplites grecs. Ainsi des mercenaires de tous pays accouraient au service de la grande Babylone. »
+
+[Pl. 5. --- L'Histoire de Suzanne. 1. --- Suzanne surprise au bain par les deux vieillards.]()
+
 ...

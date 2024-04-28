@@ -1015,4 +1015,42 @@ Les grandes tours s'élevèrent peu à peu dans le ciel, les remparts prirent co
 
 Ce ne fut pas sans émotion que Vietrix pénétra dans Babylone.
 
+Ce que l'on nommait le pays babylonien était plutôt une province qu'une ville. L'enceinte enfermait, en effet, une superficie de cinq cent treize kilomètres carrés. Cet immense espace n'était pas tout entier recouvert de maisons. Les grands faubourgs de la ville proprement dite, massée autour du temple de Baal, étaient couverts de cultures. Vietrix traversa des champs de blé, de seigle, des palmeraies entières. Chaque quartier de cette ville extérieure correspondait généralement à une nationalité, émigrants ou captifs venus de tous les coins de l'Asie. Tout était calculé, même en cas de mauvaise récolte, pour que la ville pût supporter un siège de vingt ans sans craindre la famine.
+
+C'est que Babylone n'avait existé dans les temps que comme une ville guerrière. Vietrix avait déjà entendu à cet égard de curieux récits historiques qu'il se proposait bien d'approfondir. Les invasions avaient passé sur elle. Elle avait été détruite, pillée, incendiée un grand nombre de fois au cours des siècles. Mais toujours l'orgueilleuse cité avait relevé la tête.
+
+Ainsi la ville avait été tracée au cordeau, mathématiquement, dans le sens que les astronomes avaient soigneusement déterminé. Aux cent portes d'airain, vingt-cinq sur chaque face du carré parfait de l'enceinte, cent grandes artères aboutissaient.
+
+---
+
+La plupart des grands travaux de fortification de cette enceinte étaient dus à Nabuchodonosor. Pendant le siège qui avait précédé la chute de Ninive, la Babylonie avait eu à souffrir d'atroces épreuves. Anéantie par Sennachérib, saccagée par Assourbanipal, elle avait, en outre, subi de nombreux pillages partiels au cours de ses révoltes. Les canaux s'étaient envasés, les digues écroulées, les eaux, mal dirigées, s'étaient déversées hors de leur lit et des bas-fonds depuis longtemps acquis à la culture étaient retournés à l'état de bourbiers. La tâche de trente générations était à recommencer, Nabopolassar avait exécuté des terrassements considérables. Nabuchodonosor continua l'œuvre ébauchée et l'acheva sans jamais se laisser décourager. Il remania le système d'irrigation et de navigation que les rois du premier empire avaient combiné vingt siècles plus tôt, il rectifia et approfondit le cours des fleuves principaux.
+
+Enfin il voulut que la ville fût inexpugnable. Il redoutait surtout les grandes invasions des barbares de l'Iran qui avaient détruit Ninive. Il éleva sur le front septentrional une banquette revêtue de briques liées avec du bitume ; en avant et en arrière, il creusa quatre ou cinq tranchées amples et profondes, qu'on franchissait sur des levées ou des ponts de bateaux d'une rupture facile dès le début d'une invasion. Il garnit la ligne est d'un rempart précédé d'une rigole très large, selon le contour de terrains bas faciles à inonder. Le secteur ouest était couvert de lacs et de marais ; il multiplia les digues et en régla le régime de manière à produire à volonté la submersion de la campagne.
+
+La tour de Babel formait comme le réduit du vaste camp fortifié. Une triple enceinte la cuirassait. Un fossé immense, aux parois maçonnées, alimenté par l'Euphrate, longeait l'avant-mur. Le mur véritable, qui se dressait derrière, dominait la plaine de trente mètres et semblait une chaîne de montagnes crénelée.
+
+L'Euphrate coulait au milieu de Babylone. Un pont, construit sur ce fleuve avec un art surprenant, joignait les deux parties de la ville. Aux deux extrémités de ce pont se voyaient les deux palais royaux, le vieux à l'orient, le nouveau à l'occident.
+
+---
+
+Vietrix s'enquit d'un hôtel. On lui en indiqua un précisément sur les quais de l'Euphrate, où étaient accoutumés de descendre les capitaines des navires qui faisaient le trafic du fleuve.
+
+L'animation qui régnait dans cette partie de la ville l'émerveilla. Sur les quais magnifiques construits do briques émaillées, une foule nombreuse se pressait. Des barques de toutes tailles couraient sur le fleuve. De lourds chariots transportaient les marchandises le long des quais. Les débardeurs, les colporteurs travaillaient par milliers. On déchargeait du blé, des étoffes. Ici des bœufs que l'on hissait avec de grandes précautions, là des chèvres, plus loin toute une ménagerie d'animaux féroces enfermés en de solides cages. Les grandes grues pivotaient sans cesse, les cordages grinçaient. Les uns travaillaient en robe courte : c'étaient les ouvriers libres ; les autres nus sous le fouet : c'étaient les esclaves. Toute cette foule multicolore s'agitait en poussant des cris divers. Vietrix eut tout de suite l'impression que toutes les langues du monde se croisaient ici.
+
+Des promeneurs circulaient parmi cette fourmilière en travail. C'était, en effet, l'heure voisine du crépuscule, et les Babyloniens de la haute classe ou de la bourgeoisie, travailleurs ou oisifs, venaient chercher un peu de fraîcheur au bord du fleuve. Les uns, très élégants, marchant à pied, se faisaient escorter d'esclaves avec des parasols ou des chasses-mouches ; les autres passaient paresseusement étendus dans de jolis chars. Il y avait là des officiers en tunique courte, la chevelure bouclée débordante de leur casque doré : c'étaient ces messieurs de la cavalerie. Il y avait de riches banquiers accompagnés de femmes en toilettes voyantes. Les dames de l'aristocratie passaient rapidement en char ou en chaise, échangeant parfois un coup d'œil discret avec leurs connaissances. Il y avait aussi, visiblement nues sous leurs tuniques aux mailles larges, de nombreuses courtisanes. Les plus riches faisaient la roue, cherchant à attirer l'attention des gros personnages, hommes d'affaires ou fils de famille ; les autres, timides encore à cette heure, attendaient simplement que les mariniers et débardeurs eussent fini leur travail.
+
+Vietrix loua une chambre qui donnait juste sur le quai. Il se fit servir un fin repas : poulet farci, tranche de bosse de chameau, sauterelles grillées, but quelques verres d'un excellent vin de pays et, la conscience tranquille, s'en fut coucher.
+
+[]()
+
+[]()
+
+# Chapitre 11.
+
+## La Vie Babylonienne.
+
+La vie chère a Babylone. --- Le commerce du fleuve. --- Les grands magasins. --- Les artisans. --- Costume des promeneurs. --- Les élégantes en courses. --- Un capharnaüm de races et de langues. --- Dans le quartier juif. --- Chez Jérémie. --- Complainte de la captivité.
+
+Le lendemain de son arrivée, Vietrix sortit de bonne heure. Il avait hâte, avant tout, de s'installer, car l'hôtellerie était vraiment trop bruyante et les mariniers, qui dépensaient l'argent sans compter, avaient fait monter le prix des chambres et repas. Sur le conseil d'un de ses camarades de voyage, il décida donc de se rendre vers les quartiers où logeaient les Phéniciens, non loin des Juifs. A la limite de la banlieue, il trouverait une petite maisonnette à louer dans de bonnes conditions, avec un jardin. Prendre un appartement dans les grandes maisons à trois et quatre étages du centre de la ville ne lui plaisait guère. A Lutèce, on ne voyait pas encore de semblables monuments. Il préférait de l'air et son indépendance. Du reste, le prix des loyers du quartier central avait augmenté, depuis quelque temps, dans de formidables proportions. De nombreux habitants de la banlieue extérieure avaient pris logis à l'intérieur des murailles. Le bruit des conquêtes de Cyrus se répandait partout, et ses projets n'étaient pas sans inquiéter les paisibles citoyens. Il en était résulté une crise de vie chère contre laquelle les pouvoirs publics étaient sans défense.
+
 ...

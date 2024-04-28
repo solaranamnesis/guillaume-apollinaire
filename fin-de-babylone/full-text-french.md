@@ -889,4 +889,130 @@ L'après-midi se passa de la plus agréable manière. On devait le lendemain arr
 
 La croix gammée d'après Sopphâ. --- Mœurs unisexuelles. --- Double séparation. --- Chypre, terre du libre amour. --- Derniers jours de navigation. --- Débarquement à Tyr. --- La ville commerçante. --- Sacrifices humains. --- A la recherche de l'esclave. --- Expéditions infructueuses. --- Vers Babylone.
 
+--- O ma maîtresse, dit Vietrix à Sopphâ, vois ce signe que d'aucuns nomment la croix gammée. Tu as étudié en de vieux livres, tu as été instruite par les paroles des sages athéniens, tu possèdes toi-même ce don merveilleux de divination que l'on nomme la poésie. Quelle est sa signification ? J'attends avec anxiété ton avis. Là où je trouverai l'exacte application du symbole, je dois m'arrêter. »
+
+Sopphâ réfléchit, puis un sourire illumina son visage.
+
+--- Ce signe est relatif, lui dit-elle, à l'amour que je nommerais stérile, à l'amour qui n'enfante point. Ne figure-t-il pas exactement deux êtres humains en la voluptueuse posture que tu appris ces dernières nuits à connaître ? Ce signe est un symbole obscène. A l'exacte symétrie de deux lignes brisées qui figurent évidemment des corps agenouillés, les bras étendus en avant, je distingue de plus qu'il s'agit d'un acte entre personnes du même sexe, c'est-à-dire entre hommes.
+
+Et Sopphâ riait à gorge déployée.
+
+--- Si tel est ton signe, certes, en tous les pays qui bordent cette mer tu trouverais satisfaction. En Grèce, je te l'ai déjà dit, la mode actuelle est aux passions unisexuelles. De même que je fais mariage avec la jeune Isé, de même les hommes se sont-ils acoquinés entre eux. Ils sont bien éloignés les temps innocents de l'âge d'or !
+
+La poétesse se pressait amoureusement contre le jeune Gaulois.
+
+--- Partout, te dis-je, tu saurais rencontrer des mignons qui se feraient un plaisir de figurer le signe en ta compagnie. Il n'y a pas à le nier, tu es plutôt beau gars.
+
+--- Je ne me sens malheureusement aucune disposition pour ce genre de volupté, répondit Vietrix, un peu effarouché.
+
+--- Qui le sait ? Rien n'est pire que de regimber contre son destin. Je distingue clairement le tien. Et dussé-je en souffrir, je n'y ferai pas opposition. Chypre, la luxurieuse Chypre est devant nous. Ici, toute licence est donnée aux humains, même et surtout en amour. Le signe qui te guide trouve en ces lieux son immédiate application. »
+
+Vietrix, inquiet, tendit l'oreille. La voix de Sopphâ se faisait plus caressante.
+
+--- Et puis ici, dit-elle, si tu te refuses au commerce du mâle, ce que je comprends, ma foi ! assez bien, du moins trouveras-tu à la jolie villa que j'habite avec Isé une hospitalité tendre et complète.
+
+--- Certes, je suis touché. Mais je croyais que tes principes ...
+
+--- Les hommes de mon pays, en dépit de leurs pratiques sportives, ont rompu déjà l'équilibre entre la chair et l'esprit. Leur corps, par d'artificiels procédés, se maintient assez fort. Mais leur âme est perverse, leur étreinte est toujours calculée. Malgré que ton esprit ne soit plus déjà tout à fait pur, il y a en toi une jeunesse et une force spontanées que par ici nous ne connaissons plus. Je t'aime, Vietrix, demeure avec moi. Isé sera notre docile esclave.
+
+--- Hélas ! où serais-je mieux que dans ta maison, auprès de toi, Sopphâ ? ... Mais non, je sens que mon destin m'entraîne pour quelque temps encore vers les régions de l'est ... Pythagore me l'a dit ...
+
+--- Pythagore est un âne.
+
+--- Quand j'aurai visité cet Orient lointain, la grande Babylone, je reviendrai vers toi. Et l'un et l'autre nous saurons composer sur mon voyage quelque poème d'une riche matière. »
+
+Cet argument parut faire impression sur la poétesse.
+
+--- Et puis, ajouta Vietrix, j'ai une petite querelle à régler à Tyr qui me tient fort au cœur. Je suis, ainsi que tu l'as dit, un homme. Je ne saurais laisser une injure impunie.
+
+---
+
+Bref, la séparation s'était faite sans trop de mal. Vietrix, l'esprit troublé par les visions voluptueuses des dernières nuits, avait eu quelque peine à résister à la tentation. Certes, il eût visité cette belle Chypre. Mais l'interprétation de la croix gammée de la poétesse lui apparaissait tout à fait fantaisiste. Il devait, ainsi que le lui avait dit le druide, poursuivre encore son chemin. A peine s'arrêterait-il à Tyr, le temps de châtier Canabal et de retrouver la fillette tatouée qu'il avait bel et bien payée de ses écus.
+
+Ce fut aussi l'avis de Nephtali.
+
+--- Cette poétesse a le cerveau tortu, lui dit le vieillard. La croix gammée ne se rapporte point à de telles amours. Ne te laisse pas prendre dans les filets des courtisanes. Je ne puis te renseigner sur ce signe, il procède de cultes anciens que nous avons rejetés en Juda. Je souhaite seulement que ce ne soit point là manifestation d'un esprit du mal ! A Babylone, dans la cité des mages, tu ne saurais manquer d'en découvrir le sens caché.
+
+---
+
+Les derniers jours de la navigation se passèrent sans encombres. La galère faisait force de rames. Il tardait à chacun de parvenir au port. Enfin la citadelle de Tyr apparut.
+
+--- L'ancienne Tyr se trouvait au rivage, à une trentaine de stades de l'île que tu aperçois, dit Nephtali à Vietrix. Mais Nabuchodonosor, roi de Babylone, a passé comme un ouragan sur l'antique cité. Et c'est en mer que les Phéniciens ont réédifié leur ville.
+
+Cependant la galère déjà était entrée dans le port et accostait au quai. Enfin Vietrix foulait le nouveau continent vers lequel son goût de l'aventure et sa mystérieuse destinée l'avaient conduit. L'aspect de la nouvelle ville était des plus imposants et riches.
+
+Au milieu du môle, un vaste portique, soutenu de douze rangs de colonnes, formait plusieurs galeries. C'était là que chaque jour s'assemblaient les négociants de tous pays pour faire la cote des marchandises. On y entendait parler toutes sortes de langues.
+
+Un nombre prodigieux de vaisseaux couraient en mer. Vietrix regarda longuement ce spectacle sur le quai. Les uns partaient, les autres arrivaient. Ici l'on repliait les voiles, tandis que les rameurs, fatigués, goûtaient le repos ; là on lançait à la mer des bâtiments nouvellement construits. Une foule innombrable de peuple inondait le port ; ceux-ci s'occupaient à décharger des navires, ceux-là à transporter les marchandises, d'autres à remplir les magasins. Tous étaient en mouvement, tous s'empressaient au travail, tous s'intéressaient au commerce.
+
+---
+
+Vietrix avait donc décidé de faire à Tyr un bref séjour. Cette ville cosmopolite ne lui plaisait du reste, qu'à demi. Il avait l'impression de se trouver encore sur le quai du port de Marseille.
+
+---
+
+Il ne fit qu'un tour aux temples de Baal et d'Astarté. Le caractère cruel de ces cérémonies, où l'on faisait périr les victimes humaines par centaines et milliers, ne lui plaisait guère. Un sacrifice humain est une chose sacrée qui doit être perpétrée avec un grand luxe de précautions. Ces gens-là en abusaient. Ils ne semblaient pas à Vietrix, qui avait étudié les sacrifices en Gaule, avoir gardé le sens des vieilles traditions de l'humanité. Ils se faisaient égorger, brûler, sans motif, pour le plaisir. Ils n'avaient pas le sentiment de la mesure.
+
+---
+
+Le jeune Gaulois avait été furieux d'apprendre que Canabal avait d'ores et déjà repris la mer. Il songea un instant à se lancer à sa poursuite. Mais son ennemi s'était embarqué sur une escadre qui devait tenter à nouveau le tour de l'Afrique. Il ne serait vraisemblablement pas de retour avant trois ou quatre ans !
+
+Quant au marchand d'esclaves, il n'avait fait que passer. Sa clientèle était fort dispersée. Il avait notamment des commandes pour des harems de l'intérieur et était parti livrer sa marchandise.
+
+--- Celui-là, si je le rattrape, il payera pour l'autre ! se dit Vietrix.
+
+Il erra plusieurs soirs dans les quartiers des prostituées, espérant vaguement qu'il y rencontrerait la petite esclave qui lui appartenait.
+
+Le marchand phénicien, correspondant de la maison paternelle de Lutèce, lui avait en effet affirmé qu'une fille vendue sur parchemin ne saurait avoir été écoulée qu'en fraude sur la place. Toute esclave avait ses papiers d'identité et la loi punissait celui qui se serait permis de vendre plusieurs fois la même personne. En ce pays de marchands, toutes les mesures étaient prises pour éviter la contrefaçon.
+
+Chez le marchand, Vietrix se lesta donc de bons talents de Phénicie. Il compléta sa garde-robe et, profitant d'une caravane, prit résolument le chemin de Babylone.
+
+[]()
+
+[]()
+
+# Chapitre 10.
+
+## A Travers le Désert.
+
+La caravane. --- Les courtisanes du désert. --- Les Arabes et les lions. --- La prostituée livrée aux fauves. --- L'entrée à Babylone. --- La ville et sa banlieue. --- Les fortifications de Nabuchodonosor. --- La tour de Babel. --- Les quais. --- Le travail. --- Oisifs et courtisanes. --- A l'hôtel.
+
+Vietrix vit avec satisfaction se profiler sur l'horizon du désert les grandes tours de Babylone. Il était las de voyager depuis des semaines à travers les sables interminables. Tous, soldats, touristes, commerçants, avaient envie de prendre un légitime repos.
+
+La caravane comptait trois à quatre cents personnes. Toutes les nations du bassin de la Méditerranée y étaient représentées : Grecs et Scythes à la peau blanche, Phrygiens d'Asie Mineure ; Égyptiens bruns de Memphis et quasi noirs de Thèbes ; des Israélites qui partaient retrouver un père, un fiancé, une épouse, une sœur ; Phéniciens embarrassés de ballots et enfin des envoyés des tribus du sud, chefs africains et arabes. Tous refluaient vers Babylone, la grande Babylone, la suzeraine, poussés par le désir du lucre ou du plaisir.
+
+Deux à trois cents soldats, commandés par un général qui revenait de mission, faisaient escorte. Le voyage n'était pas sans danger. Aussi tout était organisé militairement : civils et militaires devaient étroitement se conformer aux règlements.
+
+---
+
+La caravane formait vraiment un petit monde. Toutes les castes, dans chaque nationalité, avaient leur place. Il y avait même des courtisanes qui faisaient, disait-on, sans cesse le va-et-vient de la côte à Babylone. La concurrence était si forte dans les villes ! C'étaient pour la plupart des filles arabes, nées et grandies au désert. Sous le ciel de feu, parmi les réverbérations éblouissantes du sable, elles ne ressentaient pas la lassitude qui accablait les étrangers. Le soir, à la halte, elles se donnaient, indifférentes, pour quelque argent.
+
+Vers le milieu du trajet, des bandes furent signalées dans le sud. C'étaient des Arabes nomades, détrousseurs professionnels de voyageurs. Ils s'approchèrent à diverses reprises, puis revinrent plus nombreux.
+
+La surveillance fut redoublée. Tandis que le camp reposait, les sentinelles avaient ordre de donner l'éveil à la première alerte.
+
+Une nuit, le général, faisant une ronde, ne trouva point à son poste la sentinelle qui avait été mise de faction dans le sud. Ce fut au rebord de l'oasis qu'il l'aperçut, en compagnie d'une courtisane.
+
+Se priver d'un homme ? Il ne le devait pas en de si périlleuses conjectures. Mais sa colère ne pouvait supporter d'attendre. Il fit réveiller les troupes et leur ordonna de se masser autour de lui. Quelques voyageurs, dont Vietrix, firent le cercle avec les soldats.
+
+Un magnifique clair de lune éclairait, cette nuit-là, le désert. Le silence tombait à l'infini sur les plaines. Il n'était troublé de temps à autre que par le cri d'un oiseau de nuit ou le rugissement de quelque fauve.
+
+La fille fut mise nue. C'était une longue créature aux jambes fortes et fines de marcheuse. Elle avait les reins cambrés et la taille souple. Mais ses pauvres seins, qui avaient allaité jadis des enfants de hasard et que tant de misérables avaient pressés amoureusement, pendaient sur sa poitrine flétrie.
+
+Le général fit attacher par une chaîne lea deux lourds anneaux qu'elle portait aux jambes et aux bras. Et comme il n'avait pas de temps à perdre, il se contenta de la faire fustiger par plusieurs soldats.
+
+Puis il dit à celui qu'il avait surpris en faute : « Prends cette fille sur ton dos, derrière nous est la source où viennent se désaltérer les animaux du désert. Tu l'attacheras là. Et je veux que tu me rapportes son œil droit arraché, son sein gauche coupé. La besogne sera facile, ajouta-t-il avec un rire terrible. Fais vite, car non seulement les Arabes de la race de cette créature rôdent autour de nous, mais aussi de grands lions qui ont soif de sang. Ta vie sera le prix de ton obéissance et de ton habileté. »
+
+Une heure après le soldat revint. Il rapportait les lambeaux du corps de la malheureuse. Le général, satisfait, se contenta de lui faire entraver les jambes pour la durée de l'étape. Il devait ainsi suivre le convoi. A la première défaillance, il serait lui-même la proie des pillards ou des bêtes.
+
+Avant que le camp fût levé, le lendemain matin, Vietrix et quelques voyageurs se rendirent à la source. De grands oiseaux se levèrent à leur approche. Du corps de la courtisane il ne restait plus qu'un amas d'os sanglants que tous les animaux du désert s'étaient disputé pendant la nuit !
+
+Nul autre incident digne de remarque n'avait signalé le voyage.
+
+---
+
+Les grandes tours s'élevèrent peu à peu dans le ciel, les remparts prirent corps et, vers le milieu de l'après-midi, le cortège franchissait une des portes d'airain de la ville.
+
+Ce ne fut pas sans émotion que Vietrix pénétra dans Babylone.
+
 ...

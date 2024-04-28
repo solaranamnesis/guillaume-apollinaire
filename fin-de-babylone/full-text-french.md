@@ -671,4 +671,222 @@ Nephtali repr son récit. Sopphâ avait revêtu une belle tunique dorienne, tran
 
 [Pl. 5. --- L'Histoire de Suzanne. 1. --- Suzanne surprise au bain par les deux vieillards.]()
 
+« Joachim, qui avait livré au roi une partie des trésors du temple, se prépara à résister selon ses moyens. Mais, sur ces entrefaites, à la suite d'une maladie, il dut se coucher avec ses ancêtres. »
+
+« Son fils Joakin n'était âgé que de dix-huit ans. Il ne fit qu'une tentative de résistance. Un beau jour il sortit des murs avec sa mère Nekhousta, les officiers de sa maison, ses ministres, ses eunuques et alla se prosterner aux pieds du maître. Nabuchodonosor témoigna d'une certaine clémence, par politique. Il exila à Babylone toute cette cour séditieuse. Plus de trois mille personnes, prises parmi l'élite de la nation, les accompagnèrent ; les gens de métier les plus habiles furent choisis. Mais le clergé et le peuple entiers demeurèrent à Jérusalem. »
+
+« J'accompagnai les prisonniers. Ma renommée de scribe et ma réputation d'érudit m'avaient valu cette triste faveur. Chargé de missions plus tard, je revins à Jérusalem où avait été établi le dernier des fils de Josias qui prit le nom de Sédécias. J'aurais pu obtenir les plus hautes faveurs ainsi que Daniel et d'autres. Mais je n'étais point fait pour les compromissions. J'estimai que certaines complaisances étaient des trahisons. Errant, exilé, j'ai parcouru bien des pays. Et je retourne aujourd'hui à Israël, afin que mes os ne sèchent au soleil d'une terre étrangère ! »
+
+---
+
+« Mais reprenons le récit des douloureux événements qui devaient aboutir à la ruine de Juda et au triomphe de Babylone. »
+
+« Sédécias, qui, huit années, avait gouverné sagement, écouta les conseils de ceux qui voulaient rétablir l'indépendance israélite. Des envoyés de Tyr et d'Égypte intriguaient à sa cour. Dès cet instant, le conflit éclata entre le parti des philosophes à la tête duquel se trouvait Jérémie, parti qui conseillaît la temporisation, et le parti des militaires qui voulaient une action immédiate. »
+
+« Sédécias hésita longtemps, mais enfin il se décida pour la révolte. »
+
+« Cette alliance conclue avec Tyr et les Ammanites d'une part, l'Égypte de l'autre, fut une folie. Nabuchodonosor n'était point homme à s'oublier parmi les plaisirs du harem. Mais auquel devait-il s'attaquer d'abord ? Ézéchiel, alors en exil, m'a raconté à moi-même quelles hésitations il éprouva sur la route. »
+
+« Au carrefour du grand chemin, il s'arrêta ; il mêla dans les airs les flèches divinatoires, il interrogea les Teraphim, il inspecta longuement les foies des victimes. Mais il réfléchit que Juda se trouvant au milieu, il couperait net la coalition en s'attaquant d'abord à cet adversaire. C'était là qu'il ferait porter son principal effort. »
+
+« Je te dirai un mot seulement de cette Tyr où tu vas bientôt aborder et dont notre prophète Ézéchiel, en des vers magnifiques, avait dès longtemps annoncé la déchéance : »
+
+---
+
+--- O Tyr, toi qui es assise au bord de la mer,
+
+« Et qui trafiques avec les peuples d'un grand nombre d'îles, »
+
+« Tu étais parfaite en beauté. »
+
+« Ceux qui t'ont construite ont fait tous tes lambris avec des cyprès de Senir. »
+
+« Ils ont pris des cèdres du Liban pour t'élever un mât. »
+
+« Ils ont fabriqué les rames avec des chênes de Bazan. »
+
+« Et tes bancs avec de l'ivoire travaillé dans du buis. »
+
+« Le lin fin d'Égypte et ses broderies te servaient de voiles. »
+
+« Tu faisais comnierce avec le monde entier, ô Tyr ! »
+
+« Tu étais pleine de beauté. »
+
+« Tu étais en Éden, le jardin de Dieu. »
+
+« Tu étais couverte de toute espèce de pierres précieuses, »
+
+« De sardoine, de topaze, de diamant, »
+
+« De chrysolilhe, d'onyx, de jaspe, »
+
+« De saphir, d'escarboucle, d'émeraude et d'or, »
+
+« Mais ton éclat a corrompu ta sagesse. »
+
+« Tyr, j'amènerai du septentrion contre toi Nabuchodonosor, roi de Babylone, le roi des rois, avec des chevaux, des chars, des cavaliers et une grande multitude de peuples. Il tuera par l'épée tes filles sur ton territoire ; il fera contre toi des retranchements, il élèvera contre toi des terrasses, il dressera contre toi le tablier. Il dirigera les coups de son bélier contre tes murs, il renversera tes tours avec ses machines. La multitude de ses chevaux te couvrira de poussière ; les murs trembleront au bruit des cavaliers, des roues et des chars lorsqu'il franchira les portes. Il foulera toutes les rues avec les sabots de ses chevaux, il tuera ton peuple avec l'épée et les monuments de ton orgueil tomberont à terre. On enlèvera tes richesses, on pillera tes marchandises, on abattra tes murs, on renversera tes maisons de plaisance et l'on jettera au milieu des eaux tes pierres, ton bois et ta poussière. »
+
+« Je ferai cesser le bruit de tes chants et l'on n'entendra plus le son de tes harpes. Je ferai de toi un rocher nu, un de ces rochers où les pêcheurs font sécher leurs filets ! »
+
+---
+
+« Ainsi avait parlé Ézéchiel contre Tyr. Nous avions oublié ses sages paroles et nous nous étions laissé aller à conclure une alliance contre la volonté divine. Mais je reprends mon récit. »
+
+« La principale armée donc marcha contre l'orgueilleux Sédécias. Les villages et les villes ouvertes furent d'abord incendiés, les Philistins et les Edomites firent fureur dans les campagnes. Les hommes étaient passés par les armes, les femmes données aux soldats. Les chefs se faisaient livrer les vierges de Juda. »
+
+« D'Égypte, Apriès cependant était venu à notre secours. Le siège à ce moment s'installait devant la ville. Le Chaldéen fit brusquement volte-face. On crut que son départ était définitif et la joie se répandit en ville. Le seul Jérémie n'avait point confiance. --- L'armée de Pharaon qui est venue à votre secours retournera dans son pays d'Égypte, --- répétait-il. Et, en effet, Apriès battit en retraite et à nouveau le siège fut mis devant Jérusalem. »
+
+« Nous n'étions pas secourus, la chute n'était, en fait, qu'une question de jours. Les prêtres exhortaient à la patience, et de longs gémissements se faisaient entendre sous les murailles du temple. Il eût été fou d'espérer en la clémence des vainqueurs. Les passions s'étaient exaspérées el grandies. Autour des maisons de prostitution, une foule d'hommes se pressaient. Nos grandes courtisanes ne savaient où donner de la tête. »
+
+« La mort était proche et cependant beaucoup n'en avaient pas le souci. La hâte de jouir les tenait. Des hommes que l'on avait vus jusque-là posés, dignes, considérés, se livraient aux pires débordements. On n'avait ni à manger, ni à boire ; cependant des orgies se célébraient en secret chez les riches. Des époux unis depuis de longues années se séparaient. La pudeur disparaissait. On vit des vierges se donner à des passants. Les prières des uns ne pouvaient que difficilement compenser les excès des autres. »
+
+« La force et la beauté triomphaient, s'étalaient. En dépit de mesures rigoureuses, les lois n'avaient plus leur effet. Et quant à l'argent, hélas ! hélas ! des banquiers qui avaient travaillé des années vérifiaient la vanité de l'or qu'ils avaient entassé. Nul ne se souciait même de les dévaliser. La mort était proche : la nourriture était aux plus forts, l'amour aux plus beaux. »
+
+« Jérémie, dont la situation auprès des autorités était assez difficile, et que de tels débordements effrayaient, avait tenté de fuir pendant ce bref armistice afin de rejoindre sa tribu natale de Benjamin. Mais il fut arrêté à la porte et accusé de trahison. On le jeta en prison, on le roua de coups. Le roi, qui commençait à croire en lui, n'osa cependant pas le délivrer. On l'interna dans le coin du palais qui servait de geôle et on lui assigna une ration d'un petit pain par jour pour sa nourriture. Le lieu était public. Qui voulait pouvait s'entretenir avec les prisonniers. Le prophète ne cessa pas d'y prêcher et d'y exhorter le peuple à la pénitence. »
+
+--- Celui qui s'enfermera dans cette ville mourra par l'épée, disait-il, ou par la famine, ou par la maladie, mais celui qui sortira vers les Chaldéens vivra ; son âme lui sera pour butin et il vivra. Car ainsi a dit Jéhovah.
+
+« Les ministres et les capitaines et d'autres que cette voix discordante gênait se plaignirent : »
+
+--- Qu'on le fasse mourir, dirent-ils, car il rend lâches les mains des hommes de guerre et le peuple par ses paroles. --- Le roi, en fin de compte, l'abandonna à ses accusateurs. Ceux-ci lui enlevèrent ses vêtements, l'exposèrent aux rires des hommes et des filles, puis le firent plonger dans une citerne envasée.
+
+« Mais une femme était amoureuse du prophète. Elle n'avait point usé à son égard de coquetteries et ne lui avait point fait les habituelles avances : avec le vieil homme, cela eût été vain. Mais elle connut, par un officier auquel elle s'était donnée, où se trouvait la citerne. Elle ordonna à un de tes eunuques, sous peine de mort, de s'y rendre. C'était dans un terrain vague, non loin des remparts où jadis campaient ces nomades qui passent, faisant de la prestidigitation ou vendant des bricoles. »
+
+« L'eunuque se rendit à la citerne. Par un heureux hasard, tous les officiers avaient été appelés à leur poste pour repousser une forte attaque au bélier que tentaient les régiments de génie de l'armée de Nabuchodonosor. Il appela le prophète. Celui-ci se fit d'abord prier, mais, en fin de compte, suivit l'eunuque. Il devait poursuivre sa mission. »
+
+« Sa maîtresse reçut le vieillard et le vêtit d'une belle tunique. Quelques jours après, à la stupéfaction générale, il reparaissait sur la place publique et reprenait de plus belle ses invectives. On crut à une intervention divine et pour l'instant on le laissa tranquille. »
+
+« Le roi le fit même mander secrètement afin de le consulter. Mais il ne put lui tirer de la bouche que des menaces. --- Si tu sors volontairement, cette ville se sera pas consumée par les flammes, tu vivras, toi et ta maison. Mais si tu ne sors pas vers l'élat-major du roi de Babel, la ville sera livrée aux Chaldéens, qui y mettront le feu, et tu ne réussiras pas à te soustraire à leurs mains ! »
+
+« Sédécias n'aurait pas demandé mieux que de suivre ce sage avis, mais il était maintenant trop tard pour reculer. La famine vint enfin, le pain manqua partout ... »
+
+« Je m'arrêterai ici ce soir. Demain vous connaîtrez quel affreux châtiment devait s'abattre sur Israël. »
+
+---
+
+Le vieillard regagna sa couchette devant Vietrix. Sopphâ et Isé descendirent ensuite. Mais la poétesse lui jeta un regard complice. Le Parisien demeura donc sur le gaillard d'arrière, humant la brise chargée des senteurs de la terre. La galère naviguait maintenant assez près des côtes.
+
+Cependant Sopphâ ne paraissant point, il se décida à descendre. En passant près de la grande cabine, il crut entendre des gémissements. Une de ces dames serait-elle malade ? Il frappa doucement.
+
+Sopphâ ouvrit.
+
+--- C'est toi, lui dit-elle. Vois. Cette fille jalouse a osé me faire des reproches. Je l'ai moi-même fouettée jusqu'au sang. Baise mes mains, Isé.
+
+La petite Égyptienne, quelques jours avant si fière et à laquelle Sopphâ semblait obéir, s'avança en tremblant.
+
+--- Pardonne-moi, Sopphâ, lui dit-elle, pardonne-moi, car maintenant je t'aime plus que jamais.
+
+Son joli corps brun était tout marbré des coups de lanière.
+
+--- Ah ! tu m'aimes et tu n'aimes point les hommes ! Eh bien ! tu souffriras encore. Etranger, prends-la, je veux que tu la prennes sous mes yeux.
+
+[]()
+
+[]()
+
+# Chapitre 8.
+
+## Cruautés et Triomphe de Babylone.
+
+Lendemain d'amour. --- Jérusalem prise par Nabuchodonosor. --- Les supplices. --- La vierge violée et empalée. --- Humiliation de Sédécias. --- Sa torture. --- Destruction méthodique de Jérusalem. --- Orgueil de Juda. --- Tyr vaincue. --- Histoire d'Agnès et d'Ahmasis. --- Triomphe général de Babylone.
+
+Quoique le système nerveux ne fût pas en excellent état chez l'homme inquiet qu'était Vietrix, il devait cependant être considéré comme un solide gaillard.
+
+Il fut donc étonné, au lendemain matin, de se trouver quelque peu courbaturé. Il n'avait pas cru devoir refuser les réitérées politesses que ces dames lui avaient demandées. Car tout s'était bien vite arrangé à l'amiable, comme bien on pense. Isé, petite esclave, dès l'enfance accoutumée à subir toutes les complaisances de l'homme, pouvait encore en remontrer à sa maîtresse. Hors l'amour, elle ignorait exactement tout. Mais sur ce chapitre, elle était de première force.
+
+--- Et dire que j'étais regardé, à Lutèce, pour un débauché ! pensa Vietrix.
+
+---
+
+L'après-midi se passa de la plus agréable manière. On devait le lendemain arriver à Chypre. Il y avait certes une nuance de mélancolie dans les yeux des trois amoureux de rencontre. Mais la séparation était inévitable.
+
+---
+
+« Le siège de Jérusalem, reprit Nephtali à la demande générale, ne dura pas moins d'une année et demie. Je ne vous attristerai point du récit de nos misères morales et surtout matérielles durant ces interminables mois. »
+
+« Nos plus belles courtisanes, jadis exigeantes et fières, se fussent prostituées pour un morceau de pain. Mais nul homme entre leur beau corps et le froment n'eût hésité. Je crois pouvoir dire après expérience, et sans vouloir vous blesser, illustre poétesse, que la faim en pareil cas l'emporte nettement sur l'amour. »
+
+« Le génie avait multiplié ses travaux. De Babylone les ingénieurs accoutumés à lutter par de puissantes machines contre les crues de l'Euphrate étaient venus rejoindre l'armée qui assiégeait Jérusalem. Ils avaient dressé des béliers gigantesques que nos pierres et nos flèches ne pouvaient entamer. »
+
+« Enfin une nuit on entendit un sourd ébranlement. Tous tressaillirent, effrayés. Une grande portion du mur venait de s'écrouler ! C'était, si j'ai bonne mémoire, la onzième année de Sédécias, onzième mois et quatrième jour. »
+
+« L'armée chaldéenne entra par la brèche. Sédécias rassembla ses derniers soldats et délibéra afin de se frayer un chemin au-delà du Jourdain. A la faveur de la nuit, il s'évada par la poterne qui fait face à la piscine de Silo. Mais là il se heurta à une patrouille de soldats chaldéens qui s'emparèrent de sa personne. Il fut ramené à Riblah, où Nabuchodonosor attendait patiemment l'issue des opérations. Alors commencèrent les supplices dont le souvenir me fait frémir encore. »
+
+---
+
+« Des pals furent dressés de tous côtés. Des soldats y furent passés par milliers. Les femmes qui refusaient de se soumettre bénévolement à leurs caprices subirent également cette torture. Je me souviens d'une jeune fille qui était demeurée pure tandis que tant de ses compagnes, par un mariage hâtif, avaient perdu leur virginité ! C'était une douce enfant grandie à l'ombre du temple. Le roi la fit plusieurs jours plonger dans les parfums. Puis il se la fit amener et la prit de force. Ce fut ensuite le tour de ses généraux, puis des officiers. Enfin elle fut exposée nue et livrée à ceux des soldats dont leurs chefs étaient contents. Je vois encore son beau corps crispé par la douleur et la honte. Quand les soldats babyloniens l'eurent violée à leur tour, comme elle n'était plus qu'un morceau de chair inerte et inutile, elle fut mise au pal. Mais, affreuse abomination ! par un raffinement criminel, nul d'entre eux, de Nabuchodonosor au dernier archer, ne l'avait prise selon la nature ! Ah ! que la vengeance divine descende sur cette race pervertie et maudite ! »
+
+---
+
+« Les plus nobles prisonniers et les fils de Sédécias furent écorchés vifs, puis égorgés sous les yeux de leurs pères. Le roi lui-même ne subit que quelques petits supplices superficiels. On ne lui arracha pas la langue selon l'usage, on la lui perça seulement, puis il comparut devant le roi. Nabuchodonosor fit mettre son ennemi à genoux devant lui. Une joie mauvaise éclairait sa face. Le frémissement de ses mains, le plissement mauvais de sa bouche indiquaient qu'il était en pleine jouissance de sa vengeance. Son regard était celui de la bête de proie qui va assouvir sa faim. »
+
+« De nocturnes bêtes de proie, voilà l'effet que me produisirent toujours ces gens de Babylone. Ils se plaisent à la cruauté, jusque dans la luxure. On a dit que dans les temps passés, nous nous pouvions rattacher à de communes origines. Il est de fait que, durant cette captivité, nos sages ont retrouvé au pays chaldéen grand nombre de légendes semblables à celles de nos livres sacrés, le déluge, Babel, Moïse ... »
+
+« Je ne crois pas néanmoins que nos aspirations profondes soient les mêmes. Le peuple juif est doux, ceux-ci bruyants, notre religion toute spirituelle, celle de ces hommes du désert matérielle et brutale ... »
+
+« Sédécias s'était donc mis à genoux devant le roi. Dans sa main gauche celui-ci tenait la chaînette qui s'attachait à la langue traversée d'une boucle d'or de notre infortuné souverain. Alors Nabuchodonosor prit une fourche à deux branches que lui présenta le bourreau. Il tenait à opérer lui-même. Les deux extrémités de la fourche avaient été rougies au feu. »
+
+--- Sédécias, lui dit-il, je t'avais élevé sur le trône. Tu t'es révolté contre moi. Tu n'as pas voulu écouter la voix des prophètes qui cherchaient à t'arrêter en ta folle entreprise. Je t'avais exposé en pleine lumière, que les ténèbres soient désormais autour de toi !
+
+« Et ce disant il lui plongea dans les yeux, avec une précision de professionnel, les deux branches rougies. On entendit un rauque gémissement, car Sédécias ne pouvait pas parler. Plus malheureux que Joachim, notre souverain se trouvait maintenant aveugle ! »
+
+---
+
+« Quant à la ville, il fut décidé qu'elle serait démolie et brûlée. Mais non au hasard de la fureur des soldats ! Un des grands officiers de la couronne, Nabasharadar, fut délégué pour en effectuer la destruction méthodique. Le temple fut dépouillé de ses lambris précieux, les colonnes et les ouvrages d'airain du temps de Salomon furent brisés et les morceaux empaquetés dans des sacs afin de prendre le chemin de la Chaldée. La maçonnerie fut ensuite renversée. Les blocs roulèrent au pied de la colline dans le ravin de Cédron. »
+
+[Pl. 6. --- L'Histoire de Suzanne. 2. --- Les vieillards accusent Suzanne d'adultère.]()
+
+« Ceux qui restaient de la garnison, les prêtres, les scribes, les gens de la haute classe durent prendre le chemin de l'exil. La mortalité fut si cruelle que le convoi ne comprenait guère plus de huit cents personnes ! Le petit peuple de la banlieue fut épargné. On lui distribua les terrains des bannis. »
+
+---
+
+« Nous n'étions pas au bout de nos peines. La discorde se mit encore parmi ces misérables. Jérémie et Baruch durent émigrer en Égypte. Ezéchiel multipliait ses imprécations contre les derniers habitants des ruines. »
+
+--- A juste titre avez-vous été dépossédés. Car vous haussez les yeux vers les idoles et vous versez le sang. Vous vous fiez à votre épée, vous commettez des abominations, vous déshonorez la femme de votre prochain !
+
+« Jéhovah le dit à nouveau : Ceux qui sont dans ces décombres tomberont par l'épée. Ceux qui sont dans les campagnes, je les donnerai aux bêtes pour les dévorer. Ceux qui sont dans les forts et les cavernes mourront de la peste. »
+
+« Qu'il était grand, l'orgueil d'Israël ! Ainsi Jérusalem avait été détruite, mise à sac ; ainsi le royaume terrestre de Juda avait été détruit. Ce qu'il restait de pur, de noble de la race gémissait en captivité à Babylone. Vous pourrez les y voir, jeune homme. »
+
+« Les prophètes triomphaient. Les maux qu'ils avaient annoncés s'étaient abattus sur la race. Et cependant l'impiété persistait dans les cœurs. »
+
+--- C'est en vain que tu nous parles au nom de Jéhovah, disaient les réfugiés d'Égypte à Jérémie, nous ne t'écouterons point. Nous persisterons à offrir l'encens à la reine des cieux, à lui verser des libations !
+
+---
+
+--- Et quel fut le destin des alliés, de cette Tyr où je dois débarquer bientôt ? demanda Vietrix au vieillard que ces tristes souvenirs paraissaient accabler.
+
+--- Tyr assiégée résista longtemps. Treize années s'écoulèrent avant que l'autorité de Nabuchodonosor eût été établie en Phénicie. Ithobal 3 y régna sous le contrôle babylonien.
+
+« Les guerres avec l'Égypte furent de longue durée. Contre les flottes égyptiennes Nabuchodonosor usa des flottes tyriennes. »
+
+« Cependant le monarque babylonien ne serait pas venu à bout de la résistance égyptienne si la guerre civile ne s'était mise dans ce pays. »
+
+« Ahmasis, un des officiers d'Apriès, acquit peu à peu une grande popularité. Bon compagnon, adorant le vin, d'esprit facile, il s'était conquis de nombreuses sympathies. Apriès laissa son influence grandir. Pourquoi ? Au jour de la naissance du roi, Ahmasis lui avait fait cadeau d'une magnifique couronne de fleurs. J'incline à penser, quant à moi, que cet Ahmasis, beau, jeune, efféminé, et dont les orgies étaient célèbres, n'avait reculé devant aucune complaisance à l'égard d'Apriès. Prostitué au roi, il ne tarda pas à le trahir. »
+
+« Dans une fête, un soldat lui posa sur la tête le casque bombé des Pharaons. Apriès entra en fureur. Mais il était trop tard ! »
+
+« Les troupes d'Apriès et celles d'Ahmasis se livrèrent un grand combat et l'usurpateur triompha. Apriès fut livré à la populace de Saïs, qui mit son corps en lambeaux. »
+
+« Ahmasis légitima sa couronne par une série de mariages politiques. Dans le nord de l'Égypte, il épousa des princesses de la famille saïte et dans le sud la fille adoptive de Nitokris qui répondait au nom d'Ankhnasnofiribri. »
+
+--- Voilà, lit la poétesse, un précieux argument en faveur de la polygamie. On nous accuse d'user de nos charmes pour arriver à nos fins. Ce gaillard-là me paraît avoir fait flèche de tout bois pour s'élever à sa haute situation. Je composerai sur ce sujet un poème en faveur de la cause féministe !
+
+--- Les intrigues d'Ahmasis ne devaient point réussir indéfiniment. Nabuchodonosor, c'est à lui que je voulais en venir, quitta Babylone pour l'Égypte la trente-septième année de son règne. Ahmasis fut vaincu et dut accepter les fonctions plus modestes de satrape.
+
+« Tout cela pour vous expliquer la prodigieuse expansion de la Chaldée depuis une cinquantaine d'années. La Phénicie, l'Égypte, la Judée, ainsi que je vous l'ai déjà dit, ne sont plus aujourd'hui que ses vassales. »
+
+« Oui, Babylone, grisée de victoires, gorgée d'or et de dépouilles, ivre de toutes les luxures, Babylone rayonne sur les empires et sur les mers ! »
+
+[]()
+
+[]()
+
+# Chapitre 9.
+
+## En Phénicie.
+
+La croix gammée d'après Sopphâ. --- Mœurs unisexuelles. --- Double séparation. --- Chypre, terre du libre amour. --- Derniers jours de navigation. --- Débarquement à Tyr. --- La ville commerçante. --- Sacrifices humains. --- A la recherche de l'esclave. --- Expéditions infructueuses. --- Vers Babylone.
+
 ...

@@ -1325,4 +1325,112 @@ L'orient pâlissait déjà légèrement quand le char du prince déposa Vietrix 
 
 Il fut bien étonné d'être reçu à sa porte par un grand diable tout noir et une vigoureuse commère à la face réjouie. Derrière eux se trouvait Nephtali.
 
+--- Voici tes esclaves, lui dit le vieux Juif, je les ai eus à bon compte, ainsi que tu peux le voir sur la facture globale. Il y a encore une petite fille, mais nous l'avons envoyée dormir. Ces deux-ci sont loués pour une durée renouvelable de six mois.
+
+--- Parfait ! parfait !
+
+--- L'homme provient de l'expédition d'Égypte. C'était un mercenaire que les gens de Thèbes avaient recruté très loin, très loin au sud de leur pays. Cette race est tout à fait noire. Quant à l'intendante-cuisinière, elle est, ma foi, originaire d'Assyrie, d'une bonne famille d'esclaves de Ninive. Elle saura tenir ta maison en ordre et te préparer de bons plats. Désires-tu vérifier leur état physique ? Je les ai moi-même longuement examinés au marché.
+
+--- J'ai pleinement confiance.
+
+--- Mais la fillette, il faut que tu la juges toi-même. Je vais la faire réveiller et tu donneras ton avis. C'est à mon sens une petite merveille. Tu ne peux attendre, car aujourd'hui seulement le marché est résiliable. Celle-ci, je l'ai acquise ferme. J'ai eu bien des difficultés avec le marchand, mais j'ai fini par lui tirer un contrat clair sur ce cylindre.
+
+---
+
+... Il y avait à Babylone plusieurs catégories d'esclaves. Les populations civilisées qui étaient amenées par milliers en long cortège après la victoire jouissaient d'un sort relativement heureux, ainsi que Vietrix l'avait vu dans le quartier juif. Nabuchodonosor voulait que les talents des ouvriers, la science des professeurs fussent acquis par son peuple. Il éprouvait un certain respect pour tout genre de culture.
+
+Et c'est pourquoi Jérémie, aux premiers temps de la captivité, avait écrit à ses compatriotes dont il se trouvait alors séparé : « Bâtissez des maisons et demeurez-y ; plantez des jardins et mangez-y des fruits. Prenez des femmes et ayez des fils et des filles ; donnez aussi des femmes à vos fils et vos filles à des hommes, pour qu'elles enfantent des fils et des filles. Multipliez dans ce lieu et n'y demeurez pas. Cherchez la paix de la ville dans laquelle je vous ai fait transporter et priez l'Éternel pour elle, car dans sa paix vous aurez la paix. »
+
+Mais le sort des Juifs était privilégié. Des autres nations vaincues, les princes seuls avaient une position matérielle pénible. Ceux-ci étaient embrigadés au palais dans la haute domesticité. Ainsi le roi avait toujours présents sous les yeux les témoins de ses victoires.
+
+---
+
+Quant aux femmes, aux filles, aux sœurs de ces princes vaincus, il les réservait pour son harem. Il procédait lui-même à un examen minutieux de toutes les princesses dont la filiation était incontestable. Malheur à celui qui aurait tenté de lui soustraire quelque fille de sa maison ! Il ne choisissait pas seulement celles qui étaient belles, il tenait à avoir dans son harem des filles de race, des filles cultivées avec lesquelles il pût s'entretenir le cas échéant, se délasser l'esprit aussi bien que le corps. Des belles filles, un roi de Babylone pouvait s'en faire livrer à discrétion ! Les filles de sang royal, issues d'une dynastie quinze et vingt fois séculaire, étaient plus rares. La plupart des esclaves royales, celles qui avaient au harem des appartements particuliers, procédaient des plus hautes lignées.
+
+Les rois de Babylone, d'une filiation souvent moins sûre et moins ancienne, se faisaient une particulière coquetterie de peupler ainsi le quartier réservé de leur palais.
+
+---
+
+Quand ces femmes altières lui étaient amenées, Balthazar se plaisait à les soumettre à mille traitements susceptibles de les humilier dans leur cœur et dans leur chair. Parfois il montait dans les jardins merveilleux qu'il avait fait construire précisément au-dessus de son harem. Là poussaient des arbres rares, des fruits exquis, là chantaient des oiseaux à la voix mélodieuse, dont on avait rogné les ailes.
+
+Suivi de son eunuque, à la tombée du soir, Balthazar s'installait confortablement sur un long fauteuil. La jeune princesse à l'œil farouche et fier était amenée devant lui. Il la priait de retirer le voile qui couvrait les épaules et les seins et de s'incliner devant lui. Elle obéissait généralement. Alors le roi lui demandait d'enlever sa tunique et de se mettre nue. La femme, déjà vexée du premier affront, se révoltait. Balthazar faisait alors monter quelques petits esclaves sans importance et, par un eunuque ou une matrone, donnait ordre de fustiger cette comparse jusqu'au sang. Il daignait même parfois lui-même saisir le fouet.
+
+La princesse comprenait et domptant ses sentiments elle se mettait nue, cachant sa tête d'une main, sa pudeur de l'autre.
+
+--- Fille orgueilleuse, disait Balthazar, viens baiser, à genoux, le pied de ton maître.
+
+La pauvre fille, rouge et confuse, mais déjà vaincue presque, consentait parfois à l'acte d'adoration.
+
+Balthazar, demi-nu lui-même, s'était à nouveau étendu sur sa chaise et des esclaves féminins, que ce spectacle emplissait de joie, l'éventaient légèrement.
+
+--- Je suis ton maître, disait Balthazar. Fille vierge, ta virginité m'appartient. Mais il convient que tu fasses les premières avances à ton seigneur. Approche-toi de moi et que tes caresses éveillent en moi le désir !
+
+Jamais une princesse n'avait consenti de prime abord à un tel office.
+
+Alors Balthazar, à titre d'exemple toujours, faisait exécuter sur le corps de l'esclave secondaire quelques légères et savantes tortures, écorchement à la cuisse, trouée de la langue, entrée du pal.
+
+Personne, jusqu'à ce moment, n'avait touché à la princesse.
+
+Si la fille ne se soumettait point, Balthazar la faisait alors prendre et fustiger. Puis elle était ramenée dans son magnifique appartement pour quelques jours. Si l'expérience suivante était sans effet, c'était un châtiment plus dur.
+
+Quand les belles princesses, enfin domptées, avaient consenti à s'approcher de l'indolent despote, dès que leur main timide et hésitante avait frôlé sa chair, quand elles s'étaient tendues pour le baiser, Balthazar, satisfait, les priait de s'arrêter et leur offrait un riche cadeau. Il ne prenait pas ses maîtresses en public, même devant le personnel intime du harem. Mais la joie resplendissait sur son visage d'avoir vaincu la fierté et la pudeur des filles de race, élevées en des cours plus rigides que la sienne.
+
+--- Je ne les ai jamais violentées, avait-il coutume de dire en riant ; toujours elles se sont offertes à moi !
+
+Il n'ajoutait pas que certaines de ces créatures, irréductibles, n'avaient jamais consenti à sa première exigence et avaient péri sous le fouet !
+
+---
+
+L'esclave féminin appartenait corps et âme à son maître. C'était un grand affront quand le maître de maison refusait son amour à une femme quelconque en son pouvoir.
+
+De la femme légitime à la petite servante, par les concubines, les femmes de chambre, toutes devaient passer par le lit du chef de famille. C'était du reste une garantie d'obéissance. Les femmes ne demandaient guère d'autre récompense que de satisfaire de temps en temps le désir de l'homme dont elles étaient la chose. On avait vu des esclaves que leur maître avait méprisées se suicider. Elles portaient toutes au cou une chaîne scellée avec une plaque de bronze sur laquelle était marqué le nom de leur propriétaire et la date de l'achat.
+
+---
+
+Les esclaves mâles, à Babylone, qui ne travaillaient point à la maison, les esclaves d'état étaient utilisés aux grands travaux de la ville. Sous la direction des chiourmes, le fouet de cuir à la main, ils peinaient du matin au soir à élever les monuments gigantesques, les palais merveilleux, les temples incomparables. On ne leur reconnaissait pas le droit à la fatigue ni à la maladie. Quand un esclave refusait de travailler, on le battait et on le laissait mourir.
+
+La révolte, l'évasion étaient sévèrement punies, chez le particulier aussi bien que dans les services publics. C'étaient le boulet, la mise en cage, l'empalement, l'écorchement vif, la mise en croix, le crèvement des yeux, la mutilation des organes génitaux.
+
+La loi était assez sévère à l'égard de l'esclave rebelle. Le Babylonien qui tuait son esclave sans motif était passible d'une simple amende d'une demi-mesure de blé.
+
+---
+
+--- Eh bien ! je vais examiner la petite, dit Vietrix, puisque tu y tiens, mon bon Nephtali. Une petite merveille, me dis-tu ? Je crains malheureusement d'être difficile, car ce soir certaine courtisane égyptienne m'enleva de l'esprit et du corps pour quelques heures au moins toute concupiscence.
+
+La petite esclave dormait, en effet, à poings fermés quand la grosse Assyrienne que Vietrix venait de promouvoir aux fonctions de cuisinière vint l'éveiller. Elle se leva péniblement, mais, habituée au manque d'égards, suivit docilement.
+
+--- Cette satanée Égyptienne ! poursuivait Vietrix le cerveau toujours empli des fumées du nectar. Tiens, en son souvenir, je nommerai l'enfant Anouké. Anouké ! qu'en penses-tu, vieux Nephtali ?
+
+--- Si tu comptes la conserver hors toute religion, c'est un nom évidemment. La seule philosophie ...
+
+--- La philosophie ! non, à demain la philosophie, fit Vietrix. Ce soir je suis dans les affaires sérieuses. Eh bien ! que cette enfant laisse donc tomber ses voiles !
+
+La fillette était apparue devant son maître. Mais comme elle aperçut Vietrix, une sorte de crainte sembla la saisir. Elle se cacha la tête dans ses mains et se détourna.
+
+--- En voilà des manières ! faisait la cuisinière. Et elle saisissait violemment la tunique de l'enfant et s'efforçaitde la lui retirer, selon les ordres du maître.
+
+Mais la petite résistait et maintenant se laissait aller à une véritable crise de sanglots.
+
+--- Je n'y comprends rien, fit Nephtali. Elle était nue à ce marché ; nue je l'ai examinée, palpée, vérifiée ; nue la cuisinière l'a parfumée et habillée ; nues vivent les esclaves à Babylone et même les honnêtes femmes. Je ne comprends rien à cette crise de pudeur.
+
+--- Faut-il la fouetter ? interrogea la cuisinière qui maintenant s'efforçait de relever la robe de la fillette par le bas.
+
+--- Laisse-la tranquille, ordonna Vietrix. Qu'elle retourne se coucher ! Malgré ses larmes j'ai vu que sa mine m'était sympathique. Cela suffit. C'est un type assez répandu par ici, n'est-il pas vrai, Nephtali ?
+
+--- Ma foi, je n'en ai jamais vu de pareille.
+
+--- C'est que tu ne regardes pas les femmes. J'ai déjà rencontré quelque part sa sœur ou sa cousine. Quoi qu'il en soit, je la nomme Anouké. Ce nom léger et doux lui convient mieux qu'à la courtisane égyptienne dont je goûtai, ce soir, le délicieux nectar ... Allons, adieu, mon vieux Nephtali, à demain ...
+
+[]()
+
+# Chapitre 15.
+
+## Visite au Musée.
+
+Nouvelle vie du jeune Gaulois. --- Vietrix et Anouké. --- Visite au musée de Phalazar. --- Les origines humaines. --- --- Du chaos au déluge. --- Fondation de Babylone. --- Légende de Sargon. --- Le vol de la déesse Nana. --- Splendeur d'Hammourabi. --- Formation du royaume d'Assyrie. --- Découverte sur le corps d'Anouké.
+
+Vietrix se fit peu à peu à sa nouvelle vie. Les mois passaient. Il avait poussé ses études linguistiques, et c'étaient les grands problèmes historiques qui l'intéressaient maintenant.
+
+Sa maison était, en effet, fort bien tenue, et il n'avait eu qu'à se louer des esclaves que le vieux Juif lui avait achetés. Il songeait déjà à renouveler le contrat des deux premiers.
+
 ...

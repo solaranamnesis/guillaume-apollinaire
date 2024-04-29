@@ -1053,15 +1053,15 @@ La vie chère a Babylone. --- Le commerce du fleuve. --- Les grands magasins. --
 
 Le lendemain de son arrivée, Vietrix sortit de bonne heure. Il avait hâte, avant tout, de s'installer, car l'hôtellerie était vraiment trop bruyante et les mariniers, qui dépensaient l'argent sans compter, avaient fait monter le prix des chambres et repas. Sur le conseil d'un de ses camarades de voyage, il décida donc de se rendre vers les quartiers où logeaient les Phéniciens, non loin des Juifs. A la limite de la banlieue, il trouverait une petite maisonnette à louer dans de bonnes conditions, avec un jardin. Prendre un appartement dans les grandes maisons à trois et quatre étages du centre de la ville ne lui plaisait guère. A Lutèce, on ne voyait pas encore de semblables monuments. Il préférait de l'air et son indépendance. Du reste, le prix des loyers du quartier central avait augmenté, depuis quelque temps, dans de formidables proportions. De nombreux habitants de la banlieue extérieure avaient pris logis à l'intérieur des murailles. Le bruit des conquêtes de Cyrus se répandait partout, et ses projets n'étaient pas sans inquiéter les paisibles citoyens. Il en était résulté une crise de vie chère contre laquelle les pouvoirs publics étaient sans défense.
 
-|||
+---
 
 Vietrix, dès la sortie, admira encore une fois les quais de l'Euphrate. Il fut particulièrement intéressé à la vue des singuliers bateaux sur lesquels faisaient commerce les marchands de l'Arménie. La carène était faite d'un saule grossièrement taillé, mais l'intérieur était soigneusement radoubé de peaux. Ces petits bateaux naviguaient au fil du courant, et leur équipage ne comprenait que deux hommes qui maniaient le gouvernail fait d'un pieu et d'une planche. Il y en avait de toutes tailles : les plus forts pouvaient porter cinq mille talents pesants. A bord de chaque navire se trouvaient un ou deux ânes. Quand le marchand avait liquidé sa marchandise, il vendait le bois de son bateau aux menuisiers de Babylone, puis chargeait les peaux sur le dos de ses ânes. Il reprenait ainsi, les animaux devant lui, le chemin de l'Arménie. La vitesse du courant n'eût pas permis, en effet, de remonter aisément jusqu'à la région des montagnes.
 
-|||
+---
 
 Vietrix traversa les quartiers à angle droit où s'élevaient les belles bâtisses de briques à multiples étages d'une construction toute moderne. Il passa devant la porte d'airain du temple de Bel. L'animation était très grande dans les rues. Des artisans, des travailleurs, toute une foule bariolée se pressait autour de lui, à la devanture des boutiques. Tous ces gens du peuple portaient une tunique de lin qui leur descendait à mi-jambes et quelquefois jusqu'aux pieds ; certains avaient par-dessus un manteau de laine ; les mieux vêtus portaient encore un petit manteau de léger tissu blanc.
 
-Vietrix admira les belles boutiques : marchands d'étoffes aux couleurs éclatantes, de riches tapis, de meubles précieux. Il s'arrêta longuement devant la boutique d'un potier qui faisait de l'émail et d'un orfèvre qui travaillait la ciselure. Il se promit d'étudier ||| dès qu'il en aurait le temps ! ||| ces procédés qui intéresseraient l'auteur de ses jours plus encore que lui-même.
+Vietrix admira les belles boutiques : marchands d'étoffes aux couleurs éclatantes, de riches tapis, de meubles précieux. Il s'arrêta longuement devant la boutique d'un potier qui faisait de l'émail et d'un orfèvre qui travaillait la ciselure. Il se promit d'étudier --- dès qu'il en aurait le temps ! --- ces procédés qui intéresseraient l'auteur de ses jours plus encore que lui-même.
 
 L'alimentation était abondamment représentée. Les boutiques des confiseurs se distinguaient par leur nombre et leur élégance. On y trouvait des amandes à la rose, de la noix d'arec, des biscuits sucrés, des lys confits. Tandis qu'ils dégustaient d'un geste précieux toutes ces confiseries, les jeunes gens riches de Babylone devisaient à l'intérieur des boutiques. Avec leurs joues fardées, leurs yeux noircis, leurs lèvres peintes, leurs barbes dégoûtantes de nard, ils paraissaient mieux à leur place ici que sur ces champs de bataille où leur race s'était illustrée. Ces hommes-là étaient cependant les mêmes qui se grisaient de meurtres, de crimes et de tortures ; ces buveurs de liqueur à la rose étaient les mêmes qui, à d'autres heures, se grisaient de sang. Quel singulier mélange d'extrême raffinement et de sauvagerie ! se disait Vietrix. Je ne regrette point d'être venu de ma simple Lutèce jusque dans ces déserts pour considérer une humanité si différente !
 
@@ -1073,15 +1073,15 @@ Vietrix vit encore de grands bazars où l'on vendait tous les objets possibles, 
 
 Les grands magasins de nouveautés où s'achetaient les ornements féminins étaient très courus. Les élégantes faisaient, devant ces boutiques, arrêter leurs chars ou leurs chaises. On voyait aux devantures de délicieux bijoux travaillés à la manière de Suze, colliers, pendentifs en or ornés de pierres ; on y admirait des statuettes et de ces petits riens destinés à orner les appartements : déesses nues d'ivoire au poil frisé, phallus de terre cuite, colombes votives en lapis-lazuli incrusté d'or.
 
-|||
+---
 
 Que d'argent coulait ici chaque jour ! La plupart de ces marchands, de ces industriels étaient d'origine étrangère. Il avaient pu se faire naturaliser Babyloniens, mais des différences de types se remarquaient aisément. Il y avait là des hommes du nord à la peau plus blanche, mais à la barbe carrée non moins fournie que celle des Chaldéens purs ; des Perses gros et replets : des Phéniciens, des Egyptiens, des Phrygiens d'Asie Mineure, des Grecs, des Juifs à l'œil triste qui faisaient de la brocante ; des Arabes vendeurs d'arachides ; des Élamites soupçonneux ; des grands gaillards Aryas de l'est, bruns aussi, mais d'un type nettement différent de celui des autres commerçants ; de petits hommes jaunes enfin, à la barbe rare, venus des extrêmes régions où se lève le tout-puissant soleil. Le monde entier, pensait Vietrix, est donc ici représenté ?
 
-|||
+---
 
 Le jeune Gaulois déjeuna dans un restaurant dont il y avait un grand nombre. La chère était bonne à Babylone. Chaque année, les rives de l'Euphrate, couvertes et découvertes par le fleuve, fournissaient un merveilleux terrain d'élevage et de culture. On y trouvait en abondance tous mets animaux et végétaux.
 
-|||
+---
 
 Ayant commandé divers objets d'habillement dont il avait grand besoin, il se dirigea décidément vers le quartier juif dont une des extrémités touchait au fleuve. C'était un quartier très particulier de la ville, car les captifs, en principe, étaient encore soumis à une surveillance militaire. Il fallait un laissez-passer en règle à quiconque des anciens royaumes d'Israël et de Juda voulait sortir de la ville, et les autorisations de voyage au pays natal ne se donnaient que très difficilement. Cependant, à travers les rues proprettes du quartier, Vietrix remarqua que les soldats préposés à la surveillance des captifs se prélassaient d'un air plutôt indifférent. Évidemment, les règlements sévères édictés par Nabuchodonosor s'étaient quelque peu relâchés sous ses successeurs.
 
@@ -1089,7 +1089,7 @@ Vietrix se rendit au domicile de la famille de Nephtali, qui lui avait donné un
 
 Ils visitèrent tout le quartier et firent même une brève visite à Jérémie, auquel Vietrix fut enchanté d'être présenté. Ils passèrent devant la maison où habitait Daniel qui était, sans conteste, la plus imposante de toutes.
 
-||| Ah ! celui-là ! il a su faire sa pelote ! se contenta de remarquer le bon Nephtali. Quelque jour je vous conterai par le menu certaines de ses aventures. Il nous a servis, certes, sa tactique opportuniste fut peut-être la bonne, mais il ne s'est pas oublié !
+--- Ah ! celui-là ! il a su faire sa pelote ! se contenta de remarquer le bon Nephtali. Quelque jour je vous conterai par le menu certaines de ses aventures. Il nous a servis, certes, sa tactique opportuniste fut peut-être la bonne, mais il ne s'est pas oublié !
 
 Cependant le soir tombait. Sur les bords de l'Euphrate, les habitants du quartier juif, leur travail terminé, venaient prendre l'air. La fraîcheur, ce soir-là, était délicieuse. Des groupes se formaient. Les uns ici causaient avec animation, d'autres, en groupe, écoutaient une fois de plus la complainte fameuse qu'un prêtre, aux premiers temps de la captivité, il y avait plus de soixante ans, avait composée :
 
@@ -1097,7 +1097,7 @@ Cependant le soir tombait. Sur les bords de l'Euphrate, les habitants du quartie
 
 « Nous avions suspendu nos harpes aux saules des rivages. Nos oppresseurs nous demandaient des chants. Nos ennemis voulaient des cris joyeux : »
 
-||| Chantez, nous disaient-ils, chantez quelques cantiques de Sion !
+--- Chantez, nous disaient-ils, chantez quelques cantiques de Sion !
 
 « Mais comment ferions-nous entendre la langue de Jéhovah sur la terre étrangère ? »
 
@@ -1111,25 +1111,25 @@ Cependant le soir tombait. Sur les bords de l'Euphrate, les habitants du quartie
 
 ## Chez le Prince Méretçar.
 
-Quelques relations babyloniennes. ||| La question des esclaves. ||| La vie nocturne. ||| L'éveil de l'aristocratie. ||| Dans le palais de Méretçar. ||| Concours de coiffure. ||| Petit lever du prince. ||| Léger repas. ||| Le problème de la croix gammée. ||| Départ au lupanar.
+Quelques relations babyloniennes. --- La question des esclaves. --- La vie nocturne. --- L'éveil de l'aristocratie. --- Dans le palais de Méretçar. --- Concours de coiffure. --- Petit lever du prince. --- Léger repas. --- Le problème de la croix gammée. --- Départ au lupanar.
 
 Vietrix ne mit pas moins d'un mois à parfaire son installation. Il est vrai que, l'hôtellerie quittée, il ne se hâta point. Nephtali lui fut d'un précieux secours. Le vieillard se chargea de toutes les commandes. Sur chacune il parvenait à obtenir des rabais importants. Hélas ! cet infortuné érudit sur la terre d'exil n'avait guère de moyens d'existence. Son mauvais caractère l'avait éloigné des charges. Le jeune Gaulois fut enchanté que son vénérable cicérone pût, par ce moyen, se procurer quelques honnêtes commissions.
 
 Les meubles en place, il songea à s'assurer d'un personnel. Ses moyens lui permettaient un service décent, et il tenait à donner réception à ceux qui l'invitaient. Car, fort sociable, il avait tout de suite étendu ses relations. Il s'était particulièrement lié avec le célèbre poète Dhi-Sor, l'historien Poladamastor, le philosophe Mat-Shan. Nephtali l'avait également présenté à un vieux Chaldéen du nom de Phalazar, conservateur d'un musée où se trouvaient de nombreuses antiquités arrachées au sol depuis une centaine d'années. Vietrix, désireux de s'instruire, prisait fort la compagnie de ces hommes éminents, les plus distingués esprits de la Babylonie.
 
-|||
+---
 
 Il jugea que trois esclaves seraient pour le moment suffisants à son train de maison : un homme, une femme et quelque enfant pour les menus travaux. Nephtali se fit fort de les lui procurer dans les meilleures conditions :
 
-||| C'est aujourd'hui le marché, lui dit-il. Ce soir, tu trouveras chez toi ton personnel. Donne-moi seulement de ce stylet ta griffe afin que je puisse rédiger les contrats.
+--- C'est aujourd'hui le marché, lui dit-il. Ce soir, tu trouveras chez toi ton personnel. Donne-moi seulement de ce stylet ta griffe afin que je puisse rédiger les contrats.
 
-||| Ah ! combien je te remercie, mon bon Nephtali ! Tu as carte blanche pour m'acheter tous les nègres qu'il te plaira. J'ai fort à faire aujourd'hui. Je te charge de tout.
+--- Ah ! combien je te remercie, mon bon Nephtali ! Tu as carte blanche pour m'acheter tous les nègres qu'il te plaira. J'ai fort à faire aujourd'hui. Je te charge de tout.
 
 Vietrix n'était pas précisément un homme d'organisation. Les détails de la vie quotidienne l'avaient toujours fatigué. Il savait que les marchandages avec les trafiquants d'esclaves étaient les plus pénibles. Comme tous ceux de sa race, il ne savait pas marchander. Il se ferait rouler inévitablement. Et puis une question de domesticité, cela n'avait vraiment pas d'intérêt ! Il s'en rapportait au vieux Juif.
 
 Il avait du reste un projet précis. Mat-Shan, Dhi-Sor et Poladamastor, en compagnie de quelques représentants de la jeunesse dorée de Babylone, avaient décidé de faire une petite tournée dans les quartiers où l'on s'amuse et Vietrix, fort continent depuis son arrivée, n'eût eu garde de manquer à l'invitation.
 
-|||
+---
 
 Vietrix, depuis son arrivée, s'était rendu compte d'une foule de coutumes singulières qu'il n'eût point soupçonnées de prime abord. Il avait été étonné les premières nuits d'entendre les mêmes bruits que le jour. Il s'aperçut bientôt que la vie à Babylone était beaucoup plus nocturne que diurne. Certes, la chaleur extrême du jour était la raison principale de cet usage contraire _a priori_ aux lois de la nature, mais beaucoup de gens de la classe riche mettaient leur point d'honneur à ne se point lever avant que le soleil eût totalement disparu de l'horizon. Mat-Shan, Dhi-Sor, que Vietrix s'était primitivement étonné de ne jamais rencontrer l'après-midi, étaient des gens qui n'avaient point vu depuis plusieurs années un rayon de l'astre bienfaisant qu'ils vénéraient cependant de temps à autre, comme tout le monde, au temple de Bel.
 
@@ -1137,45 +1137,45 @@ Les gens du sud, Arabes, Indous, Égyptiens, Israélites, voire Phéniciens, pou
 
 Ainsi la haute société babylonienne, composée des grands seigneurs, des ministres, des gouverneurs, des satrapes, des principaux fonctionnaires, avait coutume, lorsque l'Etat ne guerroyait pas, de se reposer le jour et de se livrer à l'activité pendant la nuit. Tout au plus certains vaquaient-ils à leurs affaires deux ou trois heures le matin pour se laisser aller ensuite à la sieste jusqu'à la tombée du jour.
 
-|||
+---
 
 Vers la sixième heure du soir en moyenne, l'aristocratie, ses clients, tous les oisifs se levaient. Dans les superbes palais de brique crue séchée au soleil et revêtue de pierre, dans ceux de Barker, de Chedorm ou de Benissur entre autres, se déployait bientôt une activité turbulente. La toilette ne prenait pas moins d'une ou deux heures. Vietrix, au début, avait trouvé un tel soin exagéré, il comprit bientôt que la nécessité du climat, le désir d'entretenir beauté et force, obligeaient les Babyloniens à en agir ainsi. Là-bas, en Gaule, puis en Grèce, il avait vu hommes et femmes conserver leur jeunesse de corps jusqu'à la soixantaine. Vers cinquante ans, ceux qui avaient normalement vécu, travaillé et combattu au plein air se trouvaient les uns et les autres dans la plénitude harmonieuse de leur développement. Mais par ici, dans ces grandes villes, Vietrix avait déjà remarqué une tendance de l'espèce à vieillir plus vite. Mat-Shan, qui n'avait point doublé son demi-siècle, ne se plaignait-il pas de dégringoler déjà sur le mauvais versant ? Des soins artificiels devaient aider la nature.
 
 Au coucher du soleil donc, tout le peuple des grands seigneurs, les médecins juifs que l'on préférait à ceux de la Chaldée, les pédicures, les manucures, les masseurs hindous aux formes athlétiques, les coiffeurs et parfumeurs d'Égypte, les devins privés, astrologues ou lecteurs de présages, se partageaient leurs offices dans chaque palais.
 
-|||
+---
 
 Dans le palais du jeune prince Méretçar, un des plus riches seigneurs de Babylone dont le luxe avait maintes fois porté ombrage au prince héritier Balthazard son cousin, ces serviteurs se trouvaient au nombre de cinq cents. Méretçar tenait le sceptre de la mode. Chaque semaine, cent cinquante des plus illustres coiffeurs de Babylone comparaissaient devant lui pour lui soumettre de nouveaux projets de coiffure à son usage personnel, à l'usage des femmes de son harem et de ses mignons. Six artistes, trois peintres, trois sculpteurs, étaient spécialement attachés à sa personne pour donner leur avis à cet instant critique. Poladamastor et Dhi-Sor avaient également été conviés jadis par le prince à remplir ces hautes fonctions, mais peu aptes à de régulières obligations et redoutant par ailleurs les lourdes responsabilités, ils y avaient renoncé. En cas de désaccord entre les juges, Mat-Shan était seul convoqué d'urgence. Il prononçait et son jugement était sans appel.
 
 C'était cependant chez Méretçar que devait avoir lieu un léger dîner, une collation, avant la visite aux courtisanes dont Vietrix se faisait un si grand plaisir. Le prince avait été enchanté de recevoir en son palais un étranger de marque, venu de pays **Si** lointain qu'à Babylone même, les plus distingués géographes en ignoraient les mœurs. Méretçar se flattait d'être le protecteur, l'ami des gens de lettres et d'art.
 
-|||
+---
 
 Sa toilette faite, baigné, frictionné, épilé, coiffé, fardé, peint, poudré, pomponné, ayant revêtu une tunique élégante mais sobre, Méretçar reçut ses invités. Il eut pour chacun un mot aimable, spécialement pour Vietrix, et sans plus tarder on se mit à table.
 
 Le repas fut léger. Des fritures d'œufs de crocodile composaient l'entrée, puis des marmelades de cervelles de paon et d'ibis, de petites tortues à la broche, des langues de bélier farcies au thym et à la menthe sauvage, un confit sucré de trochibus et des fruits de palmier cuits au miel. Le tout préparé d'un art incomparable par le fameux cuisinier du prince, originaire du pays de Cathaï.
 
-|||
+---
 
 Au cours du repas, quand le vin léger de Chypre et de Syrie porta à la confidence, Vietrix exprima son anxiété quant à celle fameuse croix gammée dont son destin dépendait en quelque sorte.
 
-||| Je ne crois point, quant à moi, fit le prince, que la femme née sous un tel présage puisse offrir de sérieuses garanties. Ce signe, en effet, me paraît représenter deux serpents enlacés, et l'on sait que ces tristes animaux ...
+--- Je ne crois point, quant à moi, fit le prince, que la femme née sous un tel présage puisse offrir de sérieuses garanties. Ce signe, en effet, me paraît représenter deux serpents enlacés, et l'on sait que ces tristes animaux ...
 
-||| C'est-à-dire, reprit en riant Poladamastor, que toutes les femmes sont marquées de ce signe ! Il y a de vieilles histoires à ce sujet.
+--- C'est-à-dire, reprit en riant Poladamastor, que toutes les femmes sont marquées de ce signe ! Il y a de vieilles histoires à ce sujet.
 
-||| Je croirais plutôt, quant à moi, fit Dhi-Sor, que cette croix gammée figure le squelette d'un coq.
+--- Je croirais plutôt, quant à moi, fit Dhi-Sor, que cette croix gammée figure le squelette d'un coq.
 
-||| Un coq ! reprit Vietrix, mais alors j'aurai eu grand tort de chercher si loin la solution. Car le coq est un animal sacré de mon propre pays ...
+--- Un coq ! reprit Vietrix, mais alors j'aurai eu grand tort de chercher si loin la solution. Car le coq est un animal sacré de mon propre pays ...
 
-||| Nous n'en sortirons pas, messieurs, remarqua le pondéré Mat-Shan. De fait, nous avons tous vu ce signe ... mais son sens exact ? ... Il y a du coq, il y a du serpent, à mon humble avis, il y a bien autre chose encore ... Peu probable m'apparaît-il, mon cher Vietrix, que dans les endroits où nous avons décidé de nous rendre ce soir nous puissions découvrir la compagne d'élite que les dieux, en leur infinie bonté, vous réservèrent.
+--- Nous n'en sortirons pas, messieurs, remarqua le pondéré Mat-Shan. De fait, nous avons tous vu ce signe ... mais son sens exact ? ... Il y a du coq, il y a du serpent, à mon humble avis, il y a bien autre chose encore ... Peu probable m'apparaît-il, mon cher Vietrix, que dans les endroits où nous avons décidé de nous rendre ce soir nous puissions découvrir la compagne d'élite que les dieux, en leur infinie bonté, vous réservèrent.
 
-||| Erreur ! fit Dhi-Sor, je n'ai jamais rencontré qu'au bordel, moi, des femmes vraiment chastes et de caractère amène ...
+--- Erreur ! fit Dhi-Sor, je n'ai jamais rencontré qu'au bordel, moi, des femmes vraiment chastes et de caractère amène ...
 
-||| Mais, reprit Mat-Shan, je vous conduirai un de ces jours chez un des mages les mieux avertis de ce pays. Lui, je l'espère, saura vous révéler le sens de ce sombre mystère.
+--- Mais, reprit Mat-Shan, je vous conduirai un de ces jours chez un des mages les mieux avertis de ce pays. Lui, je l'espère, saura vous révéler le sens de ce sombre mystère.
 
-||| Quoi qu'il en soit, messieurs, dit le jeune prince, je crois que nous sommes à point. Il est l'heure. Partons !
+--- Quoi qu'il en soit, messieurs, dit le jeune prince, je crois que nous sommes à point. Il est l'heure. Partons !
 
-||| C'est cela, filons au lupanar ! grommela Poladamastor en sa barbe.
+--- C'est cela, filons au lupanar ! grommela Poladamastor en sa barbe.
 
 []()
 
@@ -1183,13 +1183,13 @@ Au cours du repas, quand le vin léger de Chypre et de Syrie porta à la confide
 
 ## Petite Orgie Babylonienne.
 
-Le quartier des prostituées. ||| Variétés d'amour. ||| Maisons mixtes. ||| Chez la courtisane Anouké. ||| Toilette d'une Égyptienne. ||| La maitresse et ses élèves. ||| Les musiciennes et les danseuses. ||| Les poses hiératiques. ||| Tristesses du poète. ||| L'exhortation interrompue. ||| La guerre et la prostitution ||| Le souper. ||| Danses lascives. ||| L'orgie. ||| L'amour de la patronne. ||| Un secret de callipygie. ||| L'instant psychologique.
+Le quartier des prostituées. --- Variétés d'amour. --- Maisons mixtes. --- Chez la courtisane Anouké. --- Toilette d'une Égyptienne. --- La maitresse et ses élèves. --- Les musiciennes et les danseuses. --- Les poses hiératiques. --- Tristesses du poète. --- L'exhortation interrompue. --- La guerre et la prostitution --- Le souper. --- Danses lascives. --- L'orgie. --- L'amour de la patronne. --- Un secret de callipygie. --- L'instant psychologique.
 
 Le quartier des prostituées était situé à la limite de la ville et de la campagne, en sorte que celles de ces dames qui avaient réussi pouvaient jouir d'un petit cottage sans toutefois perdre leur clientèle.
 
-Mais l'animation demeurait dans les rues en ville. Toutes les maisons étaient brillamment illuminées, offrant leurs portes grandes ouvertes aux passants. Vers le fleuve, dans les plus basses ruelles, les femmes se tenaient même sur l'entrée, exhibant leurs charmes aux matelots, toujours bons clients. D'autres se promenaient enlacées. En principe, chaque maison et même chaque pâté de maisons correspondait à une nationalité. Chacun en amour a ses goûts et pour les personnes et pour le travail. Quelques tenanciers, ||| c'étaient, en général, des eunuques de grands seigneurs retirés des affaires après fortune faite, ||| avaient réussi à monter des établissements mixtes, où étaient entassées pêle-mêle des filles de toute nationalité : Arméniennes, Lydiennes, Scythes du sud, Phéniciennes, Israélites, Égyptiennes, négresses, Arabes, Persanes, et d'autres venues du pays des Aryas et du mystérieux Cathaï. Toutes les prostituées et tous les grands amateurs de luxure avaient reflué vers Babylone depuis que Nabuchodonosor l'avait rétablie en sa splendeur. Il y avait des maisons de vieilles courtisanes, masseuses expertes, de fillettes à peine nubiles ; les gitons occupaient un bon morceau du quartier et on trouvait même, pour les amateurs des deux sexes, des maisons d'animaux dressés. Toute cette population d'amour s'éveillait au soir et braillait toute la nuit. Ce n'étaient, dans les quartiers réservés, que chants, ivrognerie, querelles en toutes langues, coups et souvent meurtres.
+Mais l'animation demeurait dans les rues en ville. Toutes les maisons étaient brillamment illuminées, offrant leurs portes grandes ouvertes aux passants. Vers le fleuve, dans les plus basses ruelles, les femmes se tenaient même sur l'entrée, exhibant leurs charmes aux matelots, toujours bons clients. D'autres se promenaient enlacées. En principe, chaque maison et même chaque pâté de maisons correspondait à une nationalité. Chacun en amour a ses goûts et pour les personnes et pour le travail. Quelques tenanciers, --- c'étaient, en général, des eunuques de grands seigneurs retirés des affaires après fortune faite, --- avaient réussi à monter des établissements mixtes, où étaient entassées pêle-mêle des filles de toute nationalité : Arméniennes, Lydiennes, Scythes du sud, Phéniciennes, Israélites, Égyptiennes, négresses, Arabes, Persanes, et d'autres venues du pays des Aryas et du mystérieux Cathaï. Toutes les prostituées et tous les grands amateurs de luxure avaient reflué vers Babylone depuis que Nabuchodonosor l'avait rétablie en sa splendeur. Il y avait des maisons de vieilles courtisanes, masseuses expertes, de fillettes à peine nubiles ; les gitons occupaient un bon morceau du quartier et on trouvait même, pour les amateurs des deux sexes, des maisons d'animaux dressés. Toute cette population d'amour s'éveillait au soir et braillait toute la nuit. Ce n'étaient, dans les quartiers réservés, que chants, ivrognerie, querelles en toutes langues, coups et souvent meurtres.
 
-|||
+---
 
 Méretçar et ses amis ne firent que traverser ces rues bruyantes et se rendirent chez une de leurs connaissances, parmi les splendides villas égyptiennes. Le prince avait annoncé sa visite. La maison avait donc été réservée ce soir-là. Ils furent reçus au haut de l'escalier de marbre par la patronne et ses sous-maîtresses et conduits dans son ravissant boudoir personnel.
 
@@ -1201,81 +1201,81 @@ A travers la tunique, à mailles démesurément larges, qui la couvrait, on pouv
 
 Mat-Shan, qui n'aimait point les femmes callipyges, lui demanda, d'un ton assez brutal, par quel procédé elle obtenait un tel développement.
 
-||| Celui d'entre vous qui me plaira le connaîtra tout à l'heure, se contenta-t-elle de répondre énigmatiquement.
+--- Celui d'entre vous qui me plaira le connaîtra tout à l'heure, se contenta-t-elle de répondre énigmatiquement.
 
 La chevelure d'Anouké était divisée en un nombre incalculable de tresses, terminées par des verres de perles ou de métal, par quoi elles se maintenaient indépendantes l'une de l'autre. Ses sourcils, au moyen d'une longue aiguille d'ivoire et d'ébène, terminée par une boule, avaient été peints au noir d'antimoine ; les lèvres et les pommettes avaient été avivées par des pâtes de garance ; les extrémités des mains et des pieds étaient rougies au henné ...
 
-|||
+---
 
 Cependant les visiteurs avaient pénétré du petit salon d'Anouké dans le grand. C'était une jolie salle peinte au milieu de laquelle étaient disposés des fleurs et des jets d'eau qui lançaient des liquides délicieusement odorants. Mais Dhi-Sor, qui était un peu nerveux, pria que l'on voulût bien arrêter ces appareils, dont le bruit troublait l'ordonnance de ses propos. Quoiqu'il eut des ennuis, il était ce soir assez en forme.
 
-||| Eh bien, tout se passera sans bruit, puisque ces messieurs sont des discoureurs, dit Anouké d'un ton où perçait à la fois la défiance et le mépris ...
+--- Eh bien, tout se passera sans bruit, puisque ces messieurs sont des discoureurs, dit Anouké d'un ton où perçait à la fois la défiance et le mépris ...
 
-|||
+---
 
 Cependant, à travers les escaliers, les cris des esclaves retentissaient :
 
-||| Toutes ces demoiselles au salon !
+--- Toutes ces demoiselles au salon !
 
 Elles entrèrent, ondoyantes et légères. Ces petites Égyptiennes étaient de tout âge, mais elles avaient été choisies avec habileté, et toutes semblaient des réductions de la patronne. Il était facile d'en juger, car elles étaient les unes et les autres vêtues d'une simple ceinture ornée de pierreries. Chacune avait sa pierre, selon le signe sous lequel elle était née. Anouké tenait en grand respect ces messieurs mages, et chaque jour de vieilles devineresses venaient chez elle prédire l'avenir à ses pensionnaires.
 
 Elles s'approchèrent du prince, de Mat-Shan, de Dhi-Sor, de Poladamastor, de Vietrix et des quelques jeunes gens qui les accompagnaient, elles montèrent sur de hauts tabourets et, en riant, leur versèrent sur les épaules des fleurs odorantes et entourèrent leur cou de guirlandes fleuries ; d'autres répandaient sur leur front des parfums ; de petites échansonnes leur versaient dans des coupes serties de pierres un nectar que Vietrix jugea immédiatement de première qualité.
 
-||| Mais j'ai l'air maintenant d'être un petit jeune homme pour vieux messieurs ! dit Mat-Shan, se mirant dans la glace.
+--- Mais j'ai l'air maintenant d'être un petit jeune homme pour vieux messieurs ! dit Mat-Shan, se mirant dans la glace.
 
-||| Ça c'est un comble ! appuya Dhi-Sor.
+--- Ça c'est un comble ! appuya Dhi-Sor.
 
-|||
+---
 
 Cependant chacun prenait place sur les coussins et les fillettes, sagement, s'installèrent, accroupies, sur les genoux de ces messieurs. Une musique douce de cithare et de cymbales s'élevait dans l'appartement voisin. Les danseuses professionnelles entrèrent.
 
 En Égypte, musiciennes et danseuses formaient une caste à part, élevées dans des couvents où on leur enseignait tous les arts et même ceux de l'amour. Jolies, cultivées, elles se vendaient fort cher. Anouké, pour son compte, en possédait en location une demi-douzaine. Mais elle se gardait de les prostituer à ses clients de passage. Chacune de ces petites avait un amant sérieux en titre et un amant de cœur.
 
-[Pl. 8. ||| L'Histoire de Suzanne. 4. ||| Les vieillards lapidés par le peuple. _H. Aldegraver inv. et sc._]()
+[Pl. 8. --- L'Histoire de Suzanne. 4. --- Les vieillards lapidés par le peuple. _H. Aldegraver inv. et sc._]()
 
 Vêtues de robes collantes mais relativement épaisses, elles exécutèrent des pas compliqués et d'un sentiment assez voluptueux. Elles prenaient surtout admirablement les poses hiératiques : leurs yeux se perdaient dans un immobile délire et leurs bras se levaient comme des serpents.
 
 Vietrix goûtait assez peu le raffinement un peu maladif que trahissait une telle chorégraphie et ainsi que ses collègues, blasés, il se satisfit d'une brève séance.
 
-|||
+---
 
 Tandis que se faisaient les préparatifs du léger souper, caressés par les expertes petites fillettes silencieuses, le verre de nectar à la main, en la société d'Anouké, qui, de son métier, savait tenir tête aux plus habiles rhéteurs, ils causèrent à bâtons rompus.
 
-||| Vous connaissez les nouvelles ? dit le prince. L'armée de Cyrus avance. Nos troupes de couverture du nord, qui étaient campées depuis six mois dans la plaine, en prévision des événements, ont abandonné du terrain.
+--- Vous connaissez les nouvelles ? dit le prince. L'armée de Cyrus avance. Nos troupes de couverture du nord, qui étaient campées depuis six mois dans la plaine, en prévision des événements, ont abandonné du terrain.
 
-||| Mais alors, c'est le siège ? dit Poladamastor.
+--- Mais alors, c'est le siège ? dit Poladamastor.
 
-||| C'est le siège. J'ai vu l'autre jour mon cousin Balthazar, mais il a du danger la plus singulière inconscience. Quel type singulier ! C'est moi qu'il a traité d'utopiste, de rêveur, de poète !
+--- C'est le siège. J'ai vu l'autre jour mon cousin Balthazar, mais il a du danger la plus singulière inconscience. Quel type singulier ! C'est moi qu'il a traité d'utopiste, de rêveur, de poète !
 
-||| Poète ! Hélas ! fit Dhi-Sor, la vie ne va pas être gaie pour les poètes. En temps de siège, on se moque bien de la poésie ; et les plus riches amateurs gardent leur argent pour une autre cause. Je reconnais, du reste, qu'ils n'ont point tort. De quoi vais-je bien vivre, je vous le demande ?
+--- Poète ! Hélas ! fit Dhi-Sor, la vie ne va pas être gaie pour les poètes. En temps de siège, on se moque bien de la poésie ; et les plus riches amateurs gardent leur argent pour une autre cause. Je reconnais, du reste, qu'ils n'ont point tort. De quoi vais-je bien vivre, je vous le demande ?
 
-||| Mon cher Dhi-Sor, dit le prince, vous savez que vous aurez toujours chez moi chambre et table. Vous mîtes l'autre jour le feu, vous étant endormi le flambeau à la main, à dix-huit mille papyrus, les _Lettres à un Cavalier_, œuvres complètes de notre illustre ami Ramidegourmanzor, mais je ne vous en veux pas.
+--- Mon cher Dhi-Sor, dit le prince, vous savez que vous aurez toujours chez moi chambre et table. Vous mîtes l'autre jour le feu, vous étant endormi le flambeau à la main, à dix-huit mille papyrus, les _Lettres à un Cavalier_, œuvres complètes de notre illustre ami Ramidegourmanzor, mais je ne vous en veux pas.
 
-||| Les domiciles, ils ne me manquent point ! J'en ai dix-neuf en ville, mais, par un singulier caprice de mon esprit, c'est du vingtième que j'ai toujours envie.
+--- Les domiciles, ils ne me manquent point ! J'en ai dix-neuf en ville, mais, par un singulier caprice de mon esprit, c'est du vingtième que j'ai toujours envie.
 
-||| Écoute, Jahq ||| c'était un surnom familier que ses amis se plaisaient à donner au poète ||| la guerre va commencer. Tu sais que l'ardeur des chefs et des soldats a besoin d'être excitée. Réunis en vers harmonieux les exploits des plus grands rois babyloniens, glorieux ancêtres du prince qui nous héberge ce soir. Compose ces petits morceaux que l'on nomme, sur les plus vieilles stèles des palais enfouis, des _ekos_. Et puis, devant le roi Balthazar, qui ne saurait manquer de récompenser ton zèle par de riches présents, tu les jetteras au vent. Fais des _ekos_, Jahq, fais des _ekos_ !
+--- Écoute, Jahq --- c'était un surnom familier que ses amis se plaisaient à donner au poète --- la guerre va commencer. Tu sais que l'ardeur des chefs et des soldats a besoin d'être excitée. Réunis en vers harmonieux les exploits des plus grands rois babyloniens, glorieux ancêtres du prince qui nous héberge ce soir. Compose ces petits morceaux que l'on nomme, sur les plus vieilles stèles des palais enfouis, des _ekos_. Et puis, devant le roi Balthazar, qui ne saurait manquer de récompenser ton zèle par de riches présents, tu les jetteras au vent. Fais des _ekos_, Jahq, fais des _ekos_ !
 
 Une généreuse flamme illuminait le bon Mat-Shan, tandis que, sous sa belle tunique flottante, la jeune enfant au corps d'éphèbe qu'il avait choisie, disparaissait de plus en plus.
 
-||| Tu sais, poursuivit-il, quelle belle collection de briques, de cylindres, de papyrus je possède, grâce à la générosité et à la science de notre ami Phalazar. Elle est tout entière à ta disposition pour ton travail. Fais des _ekos_, Jahq, fais des _ek_ ... !
+--- Tu sais, poursuivit-il, quelle belle collection de briques, de cylindres, de papyrus je possède, grâce à la générosité et à la science de notre ami Phalazar. Elle est tout entière à ta disposition pour ton travail. Fais des _ekos_, Jahq, fais des _ek_ ... !
 
 Il n'acheva pas. Il s'était raidi en un spasme. L'habileté de la jeune Égyptienne avait brusquement détourné vers d'autres voies le flot d'enthousiasme qui bouillonnaiten l'impétueux philosophe.
 
-||| Et nous autres, gémissait Anouké, qu'allons-nous devenir si la guerre est déclarée ?
+--- Et nous autres, gémissait Anouké, qu'allons-nous devenir si la guerre est déclarée ?
 
-||| Mais vous savez bien, dit le prince, que la ville peut tenir assiégée. Nous avons, grâce à Bel, du blé en adondance, et les champs continueront de nous donner des légumes et des fruits. Balthazar dit vingt ans, trente ans ! Illusions ! Mais je crois, d'après les statistiques qui m'ont été données par le distingué général en retraite Dinosor, qui surveille tous les marchés, que nous ne serons pas en peine avant cinq ou six ans. A condition que la discipline soit dans l'armée et l'ordre en ville, bien entendu.
+--- Mais vous savez bien, dit le prince, que la ville peut tenir assiégée. Nous avons, grâce à Bel, du blé en adondance, et les champs continueront de nous donner des légumes et des fruits. Balthazar dit vingt ans, trente ans ! Illusions ! Mais je crois, d'après les statistiques qui m'ont été données par le distingué général en retraite Dinosor, qui surveille tous les marchés, que nous ne serons pas en peine avant cinq ou six ans. A condition que la discipline soit dans l'armée et l'ordre en ville, bien entendu.
 
-||| Vous n'avez rien à craindre, dit Poladamastor ; en temps de siège, il règne une atmosphère de rut, un désir ambiant, une frénésie des plus favorables à votre industrie. Les masses cherchent vers l'amour leur dérivatif. L'âme collective du troupeau descend vers le bas-ventre et ainsi le mystère des foules est percé.
+--- Vous n'avez rien à craindre, dit Poladamastor ; en temps de siège, il règne une atmosphère de rut, un désir ambiant, une frénésie des plus favorables à votre industrie. Les masses cherchent vers l'amour leur dérivatif. L'âme collective du troupeau descend vers le bas-ventre et ainsi le mystère des foules est percé.
 
-||| Charmante soirée ! soupirait Mat-Shan.
+--- Charmante soirée ! soupirait Mat-Shan.
 
-||| Vous en avez de bonnes ! reprit Anouké. Je sais parbleu bien que l'orgie bat son plein dès que la guerre menace. Avant que de retourner rejoindre des dieux hypothétiques ...
+--- Vous en avez de bonnes ! reprit Anouké. Je sais parbleu bien que l'orgie bat son plein dès que la guerre menace. Avant que de retourner rejoindre des dieux hypothétiques ...
 
-||| Le mot est peut-être un peu léger, remarqua Mat-Shan par simple politesse.
+--- Le mot est peut-être un peu léger, remarqua Mat-Shan par simple politesse.
 
-||| Les hommes, poursuivit la jolie tenancière, se livrent au plaisir. Mais au bénéfice de qui ? C'est là que je vous arrête, prince, et vous, messieurs les littérateurs. Au bénéfice des prêtres du temple et de leur clientèle. Ils profitent des temps troublés pour multiplier leur cérémonies, ils assemblent les fidèles, leur montent la cervelle, les gonflent d'aphrodisiaques, puis lâchent dans le tas leurs hiérodules. Les hiérodules ! Des profession nels, hommes et femmes, qui de tout temps gâtèrent le métier ! Des gens qui ne respectent pas l'amour ! Les seuls qui n'y comprennent rien ! Ils se donnent par devant, par derrière, en veux-tu ? en voilà ! trente-six heures de suite ! Parbleu ! chacun, en partant, est satisfait. Mais chez nous, à la porte il n'y a plus personne ! Et c'est la faillite à brève échéance !
+--- Les hommes, poursuivit la jolie tenancière, se livrent au plaisir. Mais au bénéfice de qui ? C'est là que je vous arrête, prince, et vous, messieurs les littérateurs. Au bénéfice des prêtres du temple et de leur clientèle. Ils profitent des temps troublés pour multiplier leur cérémonies, ils assemblent les fidèles, leur montent la cervelle, les gonflent d'aphrodisiaques, puis lâchent dans le tas leurs hiérodules. Les hiérodules ! Des profession nels, hommes et femmes, qui de tout temps gâtèrent le métier ! Des gens qui ne respectent pas l'amour ! Les seuls qui n'y comprennent rien ! Ils se donnent par devant, par derrière, en veux-tu ? en voilà ! trente-six heures de suite ! Parbleu ! chacun, en partant, est satisfait. Mais chez nous, à la porte il n'y a plus personne ! Et c'est la faillite à brève échéance !
 
-|||
+---
 
 Cependant le souper était servi et les convives passèrent dans la salle à manger.
 
@@ -1285,11 +1285,11 @@ La conversation, sous les fumées de l'alcool, se poursuivit sur un ton de plus 
 
 Il y eut une discussion dont Vietrix ne saisit pas très bien le sens, quoiqu'il en fût le héros.
 
-||| Tu es une femme méditerranéenne ! protestait Poladamastor. Parbleu, tu aimes les blonds du Nord et tu dédaignes les camarades. Il faut de l'étranger à mademoiselle ! Anouké, je voulais te mettre dans mon prochain roman ! Je te supprime, je te remplace par une génisse, une génisse qui va vêler !
+--- Tu es une femme méditerranéenne ! protestait Poladamastor. Parbleu, tu aimes les blonds du Nord et tu dédaignes les camarades. Il faut de l'étranger à mademoiselle ! Anouké, je voulais te mettre dans mon prochain roman ! Je te supprime, je te remplace par une génisse, une génisse qui va vêler !
 
 Vietrix entrevit un cratère d'étain qui volait en l'air et allait s'aplatir sur le crâne de Poladamastor.
 
-|||
+---
 
 Il reprit ses sens dans une jolie chambre où il ne sut jamais comment il était monté. Trois fortes filles l'avaient dévêtu, plongé dans un bain parfumé, mais plutôt froid, et étaient en train de le masser consciencieusement.
 
@@ -1297,7 +1297,7 @@ Il reprit ses sens dans une jolie chambre où il ne sut jamais comment il était
 
 Cependant, Anouké était devant lui et l'embrassait d'un long baiser sur les lèvres :
 
-||| Oui, tu as un mystère dans tes yeux bleus, lui disait-elle. Je n'ai jamais vu des yeux tels que les tiens. Je t'aime. Pour toi je dénoue ma ceinture !
+--- Oui, tu as un mystère dans tes yeux bleus, lui disait-elle. Je n'ai jamais vu des yeux tels que les tiens. Je t'aime. Pour toi je dénoue ma ceinture !
 
 Mais suivie de Vietrix, elle passa à son tour dans la salle de bain et se fit quelques brèves ablutions. Contrairement à ses habitudes, cette belle fille, parfaitement maîtresse d'elle-même, avait ce soir également fait honneur au nectar.
 
@@ -1305,11 +1305,11 @@ Les masseuses promenèrent agilement leurs mains sur son épiderme qui frémissa
 
 En même temps deux autres femmes frappaient à coups redoublés avec des verges étoffées de soie les magnifiques fesses de leur maîtresse. Cela dura un bon moment. Puis soudain, Anouké se releva, rapide comme une tigresse, d'un geste congédia ses femmes et entraîna Vietrix sur son lit qui n'était ni trop doux ni trop dur, juste à point.
 
-||| Il n'y a pas une minute à perdre, lui dit-elle, ouvrant les bras et écartant ses jambes magnifiques. C'est par ce procédé que je possède ces larges cuisses, et c'est à cet instant seul que je puis aimer. Viens ...
+--- Il n'y a pas une minute à perdre, lui dit-elle, ouvrant les bras et écartant ses jambes magnifiques. C'est par ce procédé que je possède ces larges cuisses, et c'est à cet instant seul que je puis aimer. Viens ...
 
-||| Mais, mais, disait Vietrix, qui avait un scrupule ...
+--- Mais, mais, disait Vietrix, qui avait un scrupule ...
 
-||| Ne t'inquiète pas, mon chéri. Mon baiser coûte cher si je me vends. Mais à toi je me donne. C'est gratuit. N'aie crainte. Tu dois être homme de lettres comme ces messieurs. Je sais bien que vous n'avez pas le sou ! ... Et puis, après tout, le prince est là pour un coup ! ... Pas plus, par exemple, lit-elle après une minute de réflexion.
+--- Ne t'inquiète pas, mon chéri. Mon baiser coûte cher si je me vends. Mais à toi je me donne. C'est gratuit. N'aie crainte. Tu dois être homme de lettres comme ces messieurs. Je sais bien que vous n'avez pas le sou ! ... Et puis, après tout, le prince est là pour un coup ! ... Pas plus, par exemple, lit-elle après une minute de réflexion.
 
 []()
 
@@ -1319,7 +1319,7 @@ En même temps deux autres femmes frappaient à coups redoublés avec des verges
 
 ## Les Esclaves a Babylone.
 
-Les acquisitions de Nephtali. ||| Les esclaves de guerre. ||| Les peuples captifs. ||| Les esclaves royales. ||| Balthazar et ses belles captives. ||| Humiliation des vierges de sang royal. ||| Condition des esclaves dans la vie privée. ||| Les esclaves mâles. ||| L'examen de la petite esclave.
+Les acquisitions de Nephtali. --- Les esclaves de guerre. --- Les peuples captifs. --- Les esclaves royales. --- Balthazar et ses belles captives. --- Humiliation des vierges de sang royal. --- Condition des esclaves dans la vie privée. --- Les esclaves mâles. --- L'examen de la petite esclave.
 
 L'orient pâlissait déjà légèrement quand le char du prince déposa Vietrix à sa porte. Il se sentait, à la vérité, le cerveau quelque peu brouillé, la langue pâteuse. L'Égyptienne l'avait rompu en sa seule caresse. La vie, néanmoins, lui apparaissait assez belle.
 

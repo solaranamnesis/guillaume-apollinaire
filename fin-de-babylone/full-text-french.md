@@ -1793,4 +1793,46 @@ Gloire de Nabuchodonosor. --- Ses successeurs. --- Babylone pacifique. --- Cyrus
 
 --- Je passerai sur ces événements que vous connaissez. Nabuchodonosor, fils de Nabopolassar, éclipsa la renommée des plus fameux rois de Ninive. Il soumit les Phéniciens, les Égyptiens et vos compatriotes, mon bon Nephtali. Je ne puis, moi, trop déplorer cet événement, puisqu'il m'a valu le plaisir de faire votre connaissance.
 
+--- Nabuchodonosor a été châtié, puisque sept années durant, devenu fou, refusant le soin de tout homme, il erra dans les campagnes, comme une bête. Et s'il nous réduisit en servitude, nos âmes demeurèrent toujours libres et fières. Quand il fit dresser sa grande statue d'or que tout le monde devait adorer et qui évidemment le représentait lui-même, Daniel lui-même, en ces temps-là courtisan assidu, refusa de l'adorer. Et nous finîmes par avoir raison !
+
+--- Babylone, continua Phalazar, sous les règnes de Nabuchodonosor et de ses successeurs Évilmerodack, Meriglissor, Laborosarchod et enfin Balthazar, notre actuel souverain, continua d'être le grand centre de la civilisation. C'est vers elle que refluent les arts, la science et le commerce. Nous avons réduit en captivité des centaines de rois. Je désapprouve le procédé, mais suis obligé de reconnaître que des indices de craquement ont été signalés dans le grand édifice, du jour où le goût de la guerre se perdit.
+
+« Voici maintenant que d'autres peuples, encouragés par notre inaction, confiants en la corruption qui nous ronge, entreprirent des conquêtes qui les ont menés à nos portes. Le jeune roi des Perses, Cyrus, fils de Cambyse et de Mandane, a déjà renversé l'empire des Mèdes, conquis les plateaux du Caucase et vaincu Crésus, roi de Lydie, un souverain des plus importants. Il s'est avancé victorieusement vers le pays des Aryas. »
+
+« Ce Cyrus est un redoutable guerrier, élevé à la dure, loin des harems, selon de sévères principes. Il porte en lui la vertu et s'est imaginé devoir la propager dans le monde par le fer et par le feu. Je ne comprends pas très bien cette théorie, mais je reconnais que l'énergie a besoin parfois d'exutoires. Depuis que Balthazar s'est déclaré pacifiste, la grandeur babylonienne a perdu son orientation. Nous allons vers plus de civilisation, de bien-être ; de plus en plus nous attirons l'intelligence, la fortune ; nous montons sans cesse, mais le crime et la luxure aident aussi à notre ascension. Et on annonce partout que l'investissement de Babylone par Cyrus se poursuit méthodiquement ! A l'heure actuelle, c'est peut-être déjà chose faite. »
+
+---
+
+« Vous savez quels bruits courent depuis quelque temps sur Balthazar. Il a éloigné de sa société habituelle les guerriers. Quand il fait appel à l'un d'eux, c'est qu'il en a besoin pour son plaisir intime et personnel, c'est que le désir l'a pris de s'offrir un beau mâle. La reine est délaissée, elle s'est retirée dans ses appartements. Nos rois, du moins, eurent toujours souci de sauvegarder la dignité de la femme qui doit donner naissance à l'héritier du trône. Elle s'est retirée, hautaine et fière. Elle n'a même jamais fait une observation à son époux. Elle vit, comme tant d'autres à Babylone, dans l'attente et la crainte de la grande catastrophe que les prophètes de Nephtali et nos devins ont annoncée. »
+
+« Balthazar ne règne plus. Il s'est dérobé aux yeux du public et de sa cour. Certains disent que dans le fond de son harem il mène l'existence d'une femme. Ses cinq cents concubines, qu'il méprisait jadis, sont devenues sa seule société. Parfois, le désir de s'occuper le prend et alors, avec elles, il se met à tisser la pourpre et la laine. Il porte une robe de femme, il se farde le visage de céruse et s'enduit tout le corps des préparations compliquées dont usent les courtisanes ; il se montre plus mou que la plus voluptueuse d'entre elles. Il s'efforce de donner à sa voix le timbre féminin, il s'adonne du matin au soir aux aliments, aux boissons et à mille préparations stupéfiantes que des médecins et des devins venus des quatre coins du monde composent du suc des plantes. »
+
+---
+
+« Un eunuque échappé est venu récemment porter son indignation au grand prêtre. Et un eunuque ne s'indigne pas facilement ! Ainsi nous avons été renseignés. »
+
+« Sa seule énergie, il l'a employée à plier à ses caprices les femmes et les mignons de son harem. Dans l'appartement réservé à la première favorite, il a introduit un éphèbe de Lycie, cette contrée où les femmes ont dû prendre les rênes du gouvernement, les hommes consacrant tout leur temps à se faire la cour entre soi et à se caresser. Et dans la grande Babylone, c'est un giton professionnel qui donne les conseils quand il s'agit de prendre une grave décision. Les femmes, qui vivaient jadis séparées, il les a mélangées. Jadis, nos rois n'avaient d'autre souci que d'éviter les querelles entre les femmes de leur harem. Ils s'efforçaient de ne pas éveiller les jalousies et de ménager les susceptibilités des filles de grande race qui peuplent la partie réservée du palais. »
+
+---
+
+« Balthazar excite les querelles entre ses femmes. Il ne se plaît qu'à leurs discussions, leurs querelles, leurs batailles. Une princesse d'Éthiopie et une fille blonde du Caucase, l'autre jour, paraît-il, se livrèrent un combat singulier pour l'un des favoris du roi, un ancien militaire qui se complaît mieux au rôle actif que passif. Balthazar les fit combattre nues devant lui. Il leur avait, au préalable, fait boire à chacune un verre de sang de bouc apporté, ô profanation ! du temple de Bel, où avait eu lieu un sacrifice. La lutte fut féroce. La Scythe, plus robuste, avait enfin ter rassé sa rivale qui lui avait griffé le visage de ses ongles acérés, mais la princesse noire réussit à arracher le collier à tête de serpent qu'elle avait conservé au pied, et d'un geste rapide, tandis que l'autre l'étranglait, lui creva tour à tour les deux yeux. Alors la grande fille, qui n'avait pas lâché prise, se raidit encore, enfonça ses doigts dans le cou, puis souleva le buste de sa rivale dont on entendait la plainte sourde. Elle se redressa --- deux flots de sang, a raconté l'eunuque, coulaient des deux trous rouges de ses yeux --- balança le corps de l'enfant et par trois fois lui écrasa la tête contre les dalles de marbre de la grande salle du harem. »
+
+--- Et que faisait Balthazar ?
+
+--- Balthazar, son mignon étendu près de lui, riait paisiblement. Il paraît maintenant qu'il se gorge du matin au soir de cet extrait de chanvre que les Aryas du sud ont apporté de leur pays et qui donne l'hilarité, comme l'ache de Sardaigne donne aux Sardes ce rire sardonique qui étonne les voyageurs. Il jugea que celle qui avait vaincu devait être récompensée. Il fit donc venir le grand giton à barbe et lui ordonna de prendre, non selon la nature mais selon la mode de ceux de sa catégorie, la grande princesse caucasique, et cela jusqu'à épuisement. Entre temps, il leur faisait avaler les plus puissants et immédiats aphrodisiaques. Toute la nuit, la fille aveugle la passa en pâmoisons de douleur et de volupté ; au matin, sa jouissance s'étant transformée en râle, on la fit tuer ainsi que son amant, qui avait excité la jalousie, et leurs cadavres furent jetés aux chiens.
+
+« Voilà quelles sont les coutumières distractions de Balthazar ! ... »
+
+---
+
+« Je crains que d'ici peu sa tombe ne soit creusée et que l'on ne place sur cette tombe l'inscription que Sardanapale a jadis composée pour lui-même : »
+
+--- Passant, sûr que tu es né mortel, ouvre ton âme aux plaisirs ; il n'y a plus de jouissances pour celui qui est mort. Je ne suis que de la cendre, moi, jadis roi de la grande Ninive ; mais tout ce qui fut repas et boisson, tout ce qui fut amour, tout ce qui fut plaisir, je le possède encore. Je n'ai perdu que mes richesses et mon empire ! ---
+
+Jamais ne furent pron oncées paroles plus impies. Voyez ces pierres alignées qui célèbrent la grandeur des rois : ils se vantent de leurs exploits guerriers, jamais de leurs délassements amoureux ! »
+
+---
+
+Vietrix rentra chez lui encore tout secoué par l'affreux récit du duel. Il était de bonne heure encore et tout son personnel était debout.
+
 ...

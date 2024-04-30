@@ -1433,4 +1433,364 @@ Vietrix se fit peu à peu à sa nouvelle vie. Les mois passaient. Il avait pouss
 
 Sa maison était, en effet, fort bien tenue, et il n'avait eu qu'à se louer des esclaves que le vieux Juif lui avait achetés. Il songeait déjà à renouveler le contrat des deux premiers.
 
+Quant à la petite Anouké, elle se livrait à de menus travaux, rangeant chaque matin, dans le cabinet de Vietrix, les briques, cylindres et papyrus sur lesquels il travaillait. Ce n'était pas sans peine que le Gaulois avait réussi à vaincre sa pudeur. Mais, pour le principe, il tenait à connaître qui lui appartenait de façon définitive.
+
+Le jour où l'enfant avait consenti à se livrer à l'examen du maître, elle s'était, soi-disant, ornée et parfumée à la mode de son pays. Elle s'était recouvert la peau d'une certaine couleur d'ocre sous laquelle une bonne partie de son corps, les seins, le ventre, les cuisses étaient dissimulés. Elle était vraiment charmante : de jolis yeux mystérieux et doux, un sourire malin aux lèvres, un petit buste, de longues jambes. Elle plut à Vietrix, mais il ne se souciait nullement, pour l'instant, de déflorer l'enfant qui était vierge. La cuisinière-intendante exigerait peut-être un semblable hommage du patron ? Pouah ! Vietrix avait trouvé à la maison des Égyptiennes et dans certains lieux de rendez-vous qu'on lui avait indiqués toute satisfaction. Cette esclave, à son départ de Babylone, il la revendrait vierge un bon prix. C'était une petite bête qui rôdait gentiment dans son appartement, et voilà tout. L'amour d'une vierge est toujours maladroit. Et puis il éprouvait une crainte bizarre d'expérimenter la brune fillette qui le considérait, parfois longuement, de son mystérieux regard. Il n'osait pas lui parler brutalement, la toucher. Par moments, il éprouvait même à son endroit une sorte de respect.
+
+Ce jour-là, Vietrix, désireux de parfaire ses connaissances historiques, se rendit chez le réputé antiquaire et savant Phalazar.
+
+---
+
+Le directeur du _Musée des antiquités babyloniennes et autres_ était un vieil ami de Nephtali. Le Chaldéen et le Juif avaient longtemps travaillé de conserve à lire sur la pierre les récits du temps passé et à identifier les versions de chaque peuple. Avec l'aide de quelques astronomes de leurs amis, ils avaient réussi à fixer des dates approximatives aux premières légendes de l'humanité.
+
+Vietrix admira fort la collection d'inscriptions, de cylindres remontant à la plus haute antiquité, aux premiers temps du monde, que Phalazar avait pieusement réunis.
+
+Quelle était l'origine de l'homme ? Grave problème que les plus sages d'entre ceux de son pays n'avaient pas encore osé effleurer. Nephtali et Phalazar avaient pâli de longues nuits à scruter le mystère des vieux textes. Ils expliquèrent à Vietrix le sens des inscriptions babyloniennes qu'ils possédaient :
+
+« Jadis, disait une brique fort mutilée, ce qui est en haut ne s'appelait pas le Ciel et ce qui est en bas, la Terre, n'avait pas de nom. »
+
+« L'Abîme fut leur créateur. »
+
+« Un chaos, la Mer, fut la mère qui enfanta l'Univers. »
+
+« Les eaux confluaient ensemble. »
+
+« Il y eut des ténèbres sans rayon de lumière, un ouragan sans accalmie. »
+
+« Jadis les dieux n'existaient pas. »
+
+« Aucun nom n'était prononcé : le Destin n'était pas fixé. »
+
+« Les dieux Ann furent créés d'abord, puis un grand nombre d'années se passèrent. »
+
+« Jusqu'à ce que leur nombre augmentât. »
+
+« Enfin vinrent les dieux Sar et Kisar. »
+
+« Et le dieu Bel ... »
+
+Une autre brique, trouvée sous un profond tumulus, donnait les renseignements suivants :
+
+« Il y eut un temps où tout était ténèbre et eau, et, dans ce milieu, s'engendrèrent spontanément des animaux monstrueux et des figures les plus particulières : des hommes à deux ailes et quelques-uns à quatre, à deux faces, à deux têtes, l'une d'homme et l'autre de femme, sur un seul corps et avec les deux sexes en même temps ; des hommes avec des jambes et des cornes de chèvre ou des pieds de cheval, d'autres avec les membres postérieurs d'un cheval et ceux de devant d'un homme, semblables aux hippocentaures. Il y avait aussi des taureaux à tête humaine, des chiens à quatre corps et à queue de poisson, des chevaux à tête de chien, des hommes à tête de chien, des animaux à tête et à corps de cheval et à queue de poisson, d'autres quadrupèdes où toutes les formes animales étaient confondues, des poissons, des reptiles, des serpents de toutes sortes, des monstres merveilleux présentant la plus grande variété dans leurs formes et dont on voit les images dans les peintures des temples de Bel ... »
+
+---
+
+Les deux savants donnèrent ensuite au jeune Gaulois quelques renseignements sur la tradition du déluge. Vietrix savait que c'était là un des plus vieux souvenirs de l'humanité. Dans les Gaules, ceux qui conservent les chansons héroïques y faisaient encore maintes allusions.
+
+« Écoute ma parole, ô homme de Sourippak, fils d'Otiartis ; fais un vaisseau en forme de maison, abandonne ce que tu possèdes, sauve ta vie ; fais distribuer du pain, de la nourriture, et conserve la vie des êtres. Fais monter sur le vaisseau la semence de tout être vivant. »
+
+« Hasis-Adra le Chaldéen obéit. Il entassa sur le navire ses parents, les animaux, les plantes ; il abandonna son trésor et ses palais. »
+
+« Alors, des profondeurs des cieux surgit un nuage noir ; le dieu Bin lâcha ses éclairs ; les dieux Nebo et Bel marchaient en avant. Ils marchaient, et sous leurs pas tremblaient les monts et les vallées ; le dieu Nergal traînait après lui l'ouragan, le dieu Ninip s'avançait répandant l'obscurité. Les génies de la terre avaient éteint toute lumière et, dans leur marche, ils entamèrent la surface de la terre, pendant que Bin cherchait, avec ses foudres, à atteindre le ciel et se retournait vers la terre. »
+
+« Les vagues, comme des montagnes, couvraient la terre ; les êtres vivants étaient terrifiés ; les hommes cherchaient leur salut, luttant dans les ténèbres ; le frère ne voyait pas son frère ; les hommes ne se reconnaissaient pas entre eux. Les dieux, épouvantés eux-mêmes, craignirent cet orage : ils s'avancèrent vers Ann pour le conjurer et, comme des chiens timides, ils se cachaient dans les coins ! »
+
+[Pl. 9.]()
+
+« La déesse Istar criait comme une femme en peine. Elle parlait ainsi : »
+
+--- La création est redevenue du limon : en présence des dieux, j'avais annoncé le désastre, mais maintenant j'ordonne à l'épouvantable fléau qui frappe les hommes de s'arrêter. Moi, la Mère, j'avais enfanté les hommes. Ils peuplent maintenant les ondes comme un essaim de poissons. Que les dieux et les génies de la terre pleurent avec moi !
+
+« Et les dieux, cachés dans leurs refuges, se mirent à pleurer. Mais les destinées continuaient de s'accomplir. »
+
+« Six jours et six nuits le vent souffla ; l'orage et la destruction balayaient la terre. Le septième jour, enfin les eaux torrentielles s'arrêtèrent. La mer devint tranquille, le vent se calma, l'orage cessa. La mer avait fait son œuvre de destruction ; toute l'humanité avait été changée en boue et les cadavres flottaient comme des roseaux. »
+
+« Alors Hasis-Adra le Chaldéen ouvrit la fenêtre du navire et aperçut la lumière du jour. »
+
+« Puis il fit sortir une colombe. Elle revint bientôt, n'ayant pas trouvé d'abri. »
+
+« Il fit sortir une hirondelle ; elle revint. »
+
+« Il fit sortir un corbeau ; il ne revint pas : il s'était nourri de cadavres. »
+
+« Enfin il fit sortir un agneau et, sur la crête d'une montagne, accomplit un sacrifice. »
+
+« Toutes les divinités accoururent, attirées par la bonne odeur du sacrifice. »
+
+« Seul Bel était furieux. Il décida que les hommes habiteraient au loin, à l'embouchure du fleuve. »
+
+« Alors Hasis-Adra redescendit dans la plaine et, peu de temps après, il fonda Babylone, dont le nom signifie : La porte des Dieux ! »
+
+---
+
+--- Ces événements, dit Vietrix, remontent évidemment à la plus haute antiquité, mais dans les temps --- si je puis dire --- historiques, possédez-vous quelques curieux témoignages ?
+
+--- J'ai fait de nombreuses fouilles, répondit Phalazar. Par malheur les crédits me manquent. Hélas ! les souverains préfèrent garnir leurs harems de jolies esclaves plutôt que de détenir de vieilles bibliothèques de pierre. Les protecteurs des arts se font de plus en plus rares. Fichu temps ! Ma subvention est si courte que moi-même je me verrai bientôt obligé de manier la pioche pour mettre à jour les palais écroulés ou détruits que le sable du désert et les alluvions du fleuve couvrent incessamment. Si jamais Babylone disparaît ...
+
+--- Les prophètes l'ont prédit, fit Nephtali d'un ton grave.
+
+--- Et si les hommes des nations les mieux civilisées, la vôtre peut-être, jeune homme, s'avisent de venir par ici déterrer nos os, je leur souhaite de meilleurs encouragements que je n'en ai trouvés de la part de nos gracieux souverains. Quoi qu'il en soit, voici différentes plaques curieuses. Celle-ci est du roi Sargon qui vivait il y a environ trois mille ans. Ce n'est pas d'hier. Il n'ajoute aucune foi aux petits savants de fantaisie qu'une ridicule prétention pousse à faire remonter la création de notre capitale à trente et quarante mille ans ! La légende de Sargon est curieuse en ceci qu'elle coïncide avec une légende hébraïque, d'un nommé Moïse, n'est-il pas vrai, Nephtali ?
+
+--- C'est-à-dire que vous avez dû nous la dérober, répondit le vieil Israélite. C'est ce que j'appellerais pour le moins un plagiat littéraire.
+
+Cependant Phalazar lisait couramment sur la pierre :
+
+« Sargon, le roi tout-puissant, le roi d'Agadé, c'est moi. Ma mère était princesse, mon père je ne l'ai pas connu ; le frère de mon père habitait la montagne ; ma ville était Azonpirami qui est située sur la rive de l'Euphrate. »
+
+« Ma mère, la princesse, me conçut et m'enfanta en cachette ; elle me mit dans une couffe de roseaux, elle en ferma la bouche avec du bitume, elle m'abandonna au fleuve qui ne me reconnut point. »
+
+« Le fleuve me porta, il m'emmena vers Akki, le puiseur d'eau. Akki le puiseur d'eau me recueillit dans la bonté de son cœur. Akki le puiseur d'eau m'établit jardinier. »
+
+« Jardinier, la déesse Ishtar m'aima. Pendant quarante-quatre ans j'exerçai la royauté ... »
+
+---
+
+La lecture terminée, Phalazar reprit :
+
+« Plusieurs dynasties passèrent sur Babylone dès les premiers temps. Nous n'avons même pas conservé leurs noms. Ce Sargon serait, à mon avis, le dernier représentant de la dynastie qui succéda à celle des rois de Patesi, celle-ci ayant succédé à celle des rois d'Ur, et celle-ci à celle des rois de Sirtella. Cela nous mène à quatre ou cinq mille ans en arrière, cinq mille au plus. »
+
+--- Mais tous ces peuples et ceux qui les entouraient s'ignoraient-ils ? interrogea Vietrix.
+
+--- Point du tout. Ils partaient en de longues conquêtes, ils se pillaient, se détruisaient. Là où manquaient les femmes on faisait la guerre pour exporter des vierges. Mais les traditions demeuraient et la continuité ne fut guère rompue. Les empires, les dynasties passaient, les ténèbres régnaient parfois des centaines d'années sur une région jadis éblouissante de gloire. Mais rien ne s'oubliait. En voulez-vous un curieux exemple ?
+
+« Quand Assambanipal, le cruel roi de Ninive, s'empara de Suse, après une guerre à outrance contre Vimmanaldas, le roi de ce pays d'Elam qui s'étend vers l'Orient, il retrouva dans le temple la statue de la déesse Nana qui avait été enlevée par les Elamites, seize cent trente-cinq ans exactement auparavant au sanctuaire d'Erech. Seize cent trente-cinq ans ! La joie fut générale à cette découverte. Assyriens et Chaldéens, momentanément unis, paraissent avoir chacun retrouvé leur sac à monnaie perdu la veille ! On reconduisit en grand triomphe la déesse à son sanctuaire d'Erech qu'elle avait jadis tant aimé ! »
+
+---
+
+« Mais n'empiétons pas sur les dates. Les Elamites, ce peuple de l'ouest, avait donc conquis la Chaldée. Beaucoup des habitants de la Babylonie émigrèrent dans le nord pour échapper à leur joug. Ce devaient être les fondateurs du royaume d'Assyrie, de cette Ninive avec laquelle Babylone fut des siècles en sanglante rivalité. »
+
+« Enfin les Élamites régnèrent peu à peu sur les territoires. De nouveau nous eûmes des rois nationaux. Le plus célèbre d'entre eux fut le sage Hammourabi dont la splendeur rayonnera sur l'histoire. Je suis précisément en train de traduire le Code complet qu'il avait rédigé et dont notre législation actuelle procède encore. Hammourabi fut peut-être le principal instaurateur de la grandeur babylonienne. Tenez, voici ce qu'il a écrit sur cette pierre, arrachée au fronton de son palais : »
+
+--- Le Dieu Bel m'a donné les peuples de Sumir et d'Accad à gouverner.
+
+« J'ai fait creuser le canal de Nahar-Hammourabi qui fut la bénédiction des habitants de Babylone. Ce canal irrigue et fertilise toutes terres. »
+
+« J'ai dirigé les eaux dans les plaines désertes, je les ai fait déverser dans de petits canaux. Ainsi j'ai fourni des eaux intarissables à tous les habitants de Sumir et d'Accad. »
+
+« Les plaines désertes, je les ai transformées en champs féconds ; j'ai répandu partout la fertilité et l'abondance ; j'ai fait du pays de Sumir et d'Accad un séjour de bonheur ! »
+
+« Hélas ! d'autres dominations devaient encore passer sur la Chaldée. Sous l'un des descendants d'Hammourabi, le puissant roi d'Égypte, le troisième Thoutmès envahit la Chaldée et s'empara de Babylone. Notre roi national fut renversé et à sa place fut mis un prince arabe. Ninive et les Assyriens tombèrent aussi sous la puissance de Thoutmès. »
+
+« Nous ne devions pas nous relever de cette domination des Arabes qui dura environ trois siècles. Les premiers, les Assyriens secouèrent le joug et ce ne fut que pour nous en imposer un plus rude ! »
+
+« Voici que l'heure s'avance. Un prochain jour je vous montrerai quelques monuments du pays d'Assyrie et vous citerai quelques exemples de la lutte gigantesque entre Ninive et Babylone ! ... »
+
+---
+
+Vietrix rentra chez lui, hanté par ces fabuleux récits.
+
+Dans son bureau, il aperçut à sa grande stupéfaction sa petite esclave Anouké qui dormait sur le divan.
+
+--- C'est cette stupide cuisinière qui lui aura dit de m'attendre. Et elle s'est endormie. Tiens ! mais elle est gentille ce soir. Son petit corps doit commencer à pousser.
+
+Et afin de s'en rendre compte, comme c'était son droit, puisqu'il était le légitime propriétaire, il souleva doucement la robe de l'enfant.
+
+Une surprise l'attendait. Voici que sur la chair brune et fine il reconnaissait les tatouages qu'il avait déjà vus sur la première esclave qu'il avait achetée. Au creux du petit ventre ferme et poli, les trois jambes humaines courant dans le même sens étaient dessinées. Il la regarda de plus près. Mais, parbleu ! c'était bien la même fillette ! Il fallait qu'il fût bien ivre pour ne l'avoir point reconnue le soir de l'acquisition.
+
+Comment se faisait-il qu'il n'eût jamais examiné son corps ? Elle se couvrait d'un ocre rouge. Singulière pudeur ! Avait-elle honte de montrer ses tatouages ? Mais cela n'était pas si vilain.
+
+Ainsi elle lui appartenait deux fois.
+
+Sa première idée fut de l'éveiller ainsi, mais il songea qu'il blesserait sa pudeur. Elle évitait si soigneusement de lui jamais montrer son corps !
+
+--- Je suis un imbécile, se dit-il.
+
+Néanmoins, il rabaissa la robe, puis légèrement lui caressa les cheveux et le front. Elle s'éveilla, confuse, et lui demanda s'il n'avait besoin de rien.
+
+--- Va te coucher, répondit Vietrix, bonsoir, Anouké !
+
+Et quand elle fut partie, il songea, il songea longuement, inquiet, sans but. Le mal du pays peut-être ?
+
+[]()
+
+# Chapitre 16.
+
+## Ninive contre Babylone.
+
+Naissance de Ninive. --- Téglathphalazar le chasseur. --- Assurnazipal l'icendiaire. --- Supplices des habitants de Suru. --- Les Assyriens contre les Juifs. --- Dépravation des filles d'Israël. --- La prostitution d'Esther. --- L'armée de Sennachérib décimée en Judée. --- Ses triomphes en Chaldée. --- Sac et destruction de Babylone. --- Assurbanipal et l'apogée de Ninive. --- Châtiments affreux des Babyloniens. --- Sardanapale l'efféminé. --- Triomphe de Babylone sur Ninive. --- Prophétie de Nahum.
+
+Quelques jours après, Vietrix retourna chez le « Directeur des Antiquités babyloniennes et autres, » en compagnie de Nephtali.
+
+Phalazar reprit son récit.
+
+« Ce furent donc, dit-il, les peuples du nord, qui s'étaient rangés sous la domination d'Assyriens, qui brisèrent les premiers le joug humiliant des Égyptiens. Et nous passâmes du même coup sous leur domination. »
+
+« Le premier grand souverain assyrien fut Téglathphalazar. Il se croyait, comme tant d'autres, un délégué des dieux sur cette terre. Voici l'orgueilleuse formule de son sceau : »
+
+--- Téglathphalazar, roi des nations, fils de Salmanosa, roi du pays d'Assur, a conquis des terres innombrables. Si quelqu'un jamais détruit ce sceau, que les dieux Assur et Raman fassent disparaître son nom de ces régions !
+
+« Téglathphalazar, autant que j'ai pu en juger, fut un des souverains les plus agités de l'histoire. Il ne tenait pas en place, pillait et saccageait de tous côtés pour le seul amour de l'art. Son sport favori était la chasse. Une relique que je possède en témoigne :
+
+--- Les dieux Adar et Nergal ont confié à mes royales mains leurs armes terribles, leur arc puissant.
+
+« Avec le secours du dieu Odar, mon protecteur, j'ai tué quatre buffles d'une force et d'une grandeur extraordinaires. C'était au désert, près de la ville d'Ararihi ; je les ai tués avec mon arc puissant, mon glaive de fer et ma lance aiguë, et j'ai rapporté leurs peaux et leurs cornes dans ma ville d'Elassur. »
+
+« Une autre fois, j'ai tué des éléphants gigantesques dans le voisinage de Horan, aux sources de Habour ; j'en ai pris quatre autres vivants ; les peaux et les défenses des tués ont été transportées à Elassur. »
+
+« Une fois encore, avec le secours du dieu Odar, j'ai tué cent vingt lions, que j'ai étendus raides morts à mes pieds. »
+
+« J'en ai chargé huit cents sur mes chars. »
+
+« Ni les fauves du désert, ni les oiseaux du ciel n'ont pu se soustraire à mes flèches ! »
+
+« Téglathphalazar a fort excité l'imagination des écrivains. Ils firent de son histoire une légende. Vous connaissez sans doute les grands récits de Poladamastor sur la fondation de Ninive et les exploits de la femme guerrière Sémiramis, tels que les a narrés Dhi-Sor en son style imagé. Sémiramis, femme de Ninus, _alias_ Téglathphalazar, aurait elle-même soumis les Mèdes, les Perses, conquis le nord de l'Inde ! Elle aurait enfin reconstruit Babylone ! Ce ne sont là, je vous l'affirme, que rêveries de poètes ! »
+
+« Sous le successeur de Téglathphalazar, la Chaldée s'affranchit du joug de l'Assyrie ... »
+
+---
+
+« Des centaines d'années passèrent. Les rois se concentraient en de petites guerres. Les uns occupaient leurs loisirs à la chasse aux grands lions du désert, les autres au harem. Chacun selon son tempérament. »
+
+« Assurnazipal devait à nouveau réduire la Chaldée en esclavage. Ce fut un incendiaire professionnel. Il n'aspirait pas à conquérir, mais simplement à détruire. Voici, si j'ai bonne mémoire, la devise qui s'étalait sur son palais : »
+
+--- Ma figure s'épanouit au milieu des ruines, et je trouve ma satisfaction dans l'assouvissement de mon courroux.
+
+« La ville de Suru s'étant révoltée, il la châtia impitoyablement. J'ai été assez heureux pour acquérir un cylindre qui en relate le sac : »
+
+--- Je tuai les habitants de Suru dans la proportion de un sur deux. Le reste fut réduit en esclavage. Le roi de la ville dut assister au pillage de son palais, voir torturer ses fils et violenter ses filles, et emporter ses dieux tutélaires.
+
+« Je fis écorcher un grand nombre des rebelles en ma présence et fis couvrir le mur de leurs peaux, je lis des pyramides de leurs têtes et des trophées de leurs cadavres. Quelques-uns furent murés vifs dans la Maganicie, quelques autres crucifiés ou empalés au long du mur. Enfin j'ai emmené le roi à Ninive, où je le fis écorcher, et j'étendis sa peau sur le rempart de la ville. »
+
+--- En voilà un qui ne plaisantait pas ! fit Vietrix.
+
+--- Ses successeurs non plus. Les rois de l'Assyrie ont fait preuve de plus de férocité que les nôtres. C'étaient de grands amateurs de meurtre et de viol ...
+
+---
+
+« Salmanasar, Téglathphalazar 2 passèrent. Ce dernier put écrire sur une stèle : »
+
+--- Je suis le roi qui, depuis le lever jusqu'au coucher du soleil, ai mis en fuite tous mes ennemis. »
+
+--- Ce fut lui également, remarqua Nephtali, qui rendit le premier le royaume d'Israël tributaire de Ninive.
+
+--- En effet, mais sous Sargon, fondateur d'une nouvelle dynastie, quelque temps après, le royaume d'Israël fut démembré et ses habitants emmenés en captivité.
+
+--- Comment se fit-il que votre Dieu vous eût dès ce temps abandonné ? demanda Vietriz à Nephtali.
+
+--- Dites plutôt, répondit le vieillard, qu'Israël avait abandonné son Dieu. L'alliance avait été dénoncée, le veau d'or était adoré, le regard des hommes ne se portait plus que sur les filles et le regard des filles sur leurs parures. Je puis vous rappeler les quelques arguments que les prophètes se plaisaient à détailler à ce sujet.
+
+--- Certes, firent Phalazar et Vietrix.
+
+--- Parce que les filles d'Israël se sont élevées, parce qu'elles ont marché la tête haute, faisant des gestes de leurs mains et des signes de leurs yeux, parce qu'elles ont étudié leur pas et mesuré leur démarche,
+
+« Le Seigneur rendra chauve la tête des filles d'Israël, il fera tomber tous leurs cheveux jusqu'au dernier. »
+
+« En ce jour, le Seigneur leur ôtera leurs charmes magnifiques, leur croissant d'or, »
+
+« Leurs colliers, leurs filets de perles, leurs bracelets, leurs coiffes, »
+
+« Leurs rubans de cheveux, leurs jarretières, leurs chaînes d'or, leurs boîtes de parfums, leurs pendants d'oreilles, »
+
+« Leurs bagues et les pierreries qui leur pendent sur le front, »
+
+« Leurs robes magnifiques, leurs écharpes, leurs beaux linges, leurs poinçons de diamant, »
+
+« Leurs miroirs, leurs chemises de grand prix, leurs bandeaux et les vêtements transparents qu'elles portent en été. »
+
+--- Je vois que la coquetterie régnait en Israël, fit Vietrix.
+
+--- Cela eut aussi son utilité, car la prostitution d'une des plus jolies filles d'entre les filles des deux royaumes, Esther, permit d'adoucir la captivité de Ninive. Conseillée par quelques vieillards experts aux secrets de l'amour, ayant des mois parfumé son corps virginal, ayant, selon les recettes juives, poli ses seins, ses cuisses et son ventre, elle sut se faire aimer du maître tout-puissant, un grand raffiné s'il en fut.
+
+--- Sargon, après maints grands exploits, une nouvelle conquête de Babylone révoltée, fut assassiné, continua Phalazar. Sennachérib lui succéda.
+
+---
+
+--- De celui-ci, fit Nephtali, nous avons aussi gardé le souvenir en Juda. Il marcha contre notre roi à la tête d'une armée immense. La terreur régnait dans Jérusalem assiégée. Le roi Ézéchias se rendit au temple et il pria :
+
+« O Jéhovah ! Dieu d'Israël, toi qui sièges entre les chérubins, tu es le seul Dieu de tous les royaumes de la terre ! tu as fait les cieux et la terre ! »
+
+« O Jéhovah ! prête l'oreille et écoute ; ouvre tes yeux et regarde ; écoute les paroles de Sennachérib et de celui qu'il a envoyé pour blasphémer le Dieu vivant. »
+
+« O Jéhovah ! je te prie, délivre-nous du blasphémateur Sennachérib, sinon les royaumes de la terre ne sauraient plus si tu es le vrai Dieu. »
+
+« Ce petit chantage réussit à merveille. Isaïe, inspiré, annonça de suite, à la stupéfaction générale, que Sennachérib n'entrerait point dans la ville. »
+
+--- Je garantirai cette ville et je la délivrerai, à cause de moi et de mon serviteur David, m'a dit le Seigneur.
+
+Et, en effet, la peste se mit dans l'armée. En quelques jours deux cent mille hommes périrent. Sennachérib leva le camp.
+
+--- Hélas ! reprit Phalazar, contre nous qui étions entrés en révolte, selon l'usage, à la mort du roi précédent, le souverain de Ninive réussit mieux ...
+
+[Pl. 10. --- Suzanne au Bain. _Guido Reni inc._ _De Villers sc._]()
+
+---
+
+« La campagne de Sennachérib contre Babylone est la plus terrible que cette ville ait supportée, et près de deux siècles après, on n'a pas oublié ici les épisodes de la destruction. Cette destruction était, il est vrai, peut-être voulue par les dieux afin que Nabuchodonosor lui donnât l'aspect le plus imposant et magnifique qu'elle eût jamais eu dans l'histoire. »
+
+« J'ai ici le relevé pris jadis à Ninive sur les grands palais des inscriptions qui rappellent la victoire de Sennachérib. »
+
+Babylone s'était donc révoltée et toutes les tribus du sud et de l'est étaient venues à son aide. Il s'agissait de réduire un conquérant qui menaçait d'asservir tous les royaumes. C'était le suprême effort.
+
+--- Tous ces peuples, dit Sennachérib, vinrent de Babylone unis contre moi. Pareils à des bandes innombrables de sauterelles qui se répandent dans la plaine pour la dévaster, ils se ruèrent contre moi. La poussière, relevée par leurs pieds, était semblable aux nuages épais des pluies de l'automne qui envahit les vastes cieux, cachant ce qui se trouvait devant moi. Sur les bords du Tigre ils s'établirent en ligne et résolurent de tenter le sort des armes.
+
+« Je me confiais à notre dieu Assur, à Nergal, à Nabre, à toutes les divinités protectrices de Ninive. J'implorais leur secours contre l'ennemi innombrable qui s'avançait contre moi. »
+
+« Les dieux entendirent ma prière, ils m'accordèrent leur protection. Alors je me mis en garde. »
+
+« Le cœur rempli de courroux, je montai sur mon char de bataille le plus élevé, celui qui balaye les ennemis. Je pris dans mes mains l'arc puissant que le dieu Assur m'a donné. »
+
+« Je me ruai alors comme le feu dévorant sur toutes ces armées rebelles, comme Raman, le dieu inondateur. Je marchai sur ma proie pour la détruire et versai la stupeur sur mes adversaires. »
+
+« La tempête de la bataille se déchaîna ; bientôt j'ébranlai leur résistance et fis chanceler leur fermeté. »
+
+« L'armée des rebelles, sous mes attaques terribles, se replia. »
+
+« Les chefs, désespérés, délibérèrent. »
+
+--- Cet excellent Sennachérib exagérait un peu, remarqua alors Phalazar. A la vérité, nul succès décisif n'avait été remporté. Ce fut grâce à la trahison d'un officier auquel il donna des monceaux d'or, des bijoux en quantité, que notre armée, surprise, tomba une nuit entre ses mains.
+
+« Sur la terre mouillée, les armes et les harnais nageaient dans le sang comme dans un fleuve : les chars de bataille avaient tout écrasé, corps et membres. J'entassai les cadavres des soldats comme des trophées et tranchai les extrémités de leurs membres. Je mutilai ceux que je pris vivants comme des brins de paille et, pour punition, je leur coupai les mains. »
+
+--- C'est alors que cet implacable souverain décida la destruction systématique de Babylone.
+
+« Dans un second voyage, je marchai rapidement sur Babylone, dans laquelle j'entrai sans coup férir ; je me précipitai, pareil à l'orage, et passai sur elle comme un ouragan ! »
+
+« La ville et ses temples, je les ai détruits de leurs fondations au sommet et livrés aux flammes. Les forteresses et les temples des dieux, je les ai abattus et renversés dans le canal ... »
+
+« Et pour que dans la suite des temps on ne pût retrouver l'emplacement de cette ville et de ses temples, je les submergeai sous les eaux ! ... »
+
+---
+
+« Sennachérib succédaient Assarhaddon et Assurbanipal. Ce dernier ne craignit pas de s'enfoncer au plus profond de l'Égypte, ayant derrière lui des centaines de princes en révolte.
+
+--- Je pris la ville de Thèbes et mes mains la soumirent à la domination d'Assur et d'Istar ; je m'emparai de son argent, de son or, des pierres précieuses, des trésors du palais royal, des étoffes de laine et de lin ; des grands chevaux ; des princesses, des concubines, des esclaves ; de deux obélisques couverts de magnifiques sculptures et du poids de vingt-cinq mille talents, dressés devant la porte d'un temple ; je les enlevai de place et transportai ce butin jusqu'à Ninive, à travers les déserts ... ---
+
+« Cependant la lutte entre Babylone et Ninive continuait. Nous subîmes un siège terrible. La famine régnait. Les enfants furent, dans la ville, mis à mort et mangés. Quand Assurbanipal franchit enfin les portes, ce fut un affreux carnage. La plupart des soldats périrent par l'épée dans la première ruée. »
+
+« Les autres furent écorchés vifs devant les taureaux ailés et les lions colossaux élevés par Sennachérib, mon grand-père. Moi-même j'en écorchai de mes propres mains et je jetai leurs chairs pantelantes aux chiens, aux chacals et aux vautours. »
+
+---
+
+« Avec Assurbanipal, l'empire des Assyriens avait atteint à son apogée. Il rayonnait du soleil levant au soleil couchant, du pays des glaces au pays des déserts brûlants. »
+
+« Assuredelani, son fils, lui succéda. Quelques-uns le nommèrent Sardanapale. Mais il n'imita point l'exemple de son père. Il vivait au harem et négligeait les intérêts de l'Empire. Le satrape de Médie, Arbaties, et le Babylonien Bérésis se révoltèrent contre lui et vinrent avec des armées mettre le siège devant Babylone. »
+
+« Le siège dura trois ans. Sardanapale résistait victorieusement. Mais un beau jour une crue du Tigre renversa les murailles sur une longueur de vingt stades. Un oracle avait jadis prédit à Assuredelani qu'il serait vaincu le jour où le fleuve le trahirait. Il comprit que le sort s'était accompli. Tandis que les alliés préparaient l'assaut, il s'enferma dans son palais avec ses favoris, ses femmes, ses enfants, donna un immense festin, puis mit lui-même le feu au gigantesque édifice. Les vainqueurs ne trouvèrent que des ruines. »
+
+« Les Mèdes et les Babyloniens, maîtres de Ninive, après avoir massacré les habitants, s'acharnèrent à détruire le palais, les temples et les maisons jusqu'aux fondements. Puis ils détournèrent le cours du Tigre et en tirent passer les eaux sur les ruines, afin de les ensevelir pour toujours sous des couches de sable. Les destructeurs ne se retirèrent point tant qu'il y eut un pan de mur debout, tant qu'il y eut un homme vivant, capable de songer à la revanche. Les femmes elles-mêmes furent égorgées, le caprice des soldats satisfait, de crainte qu'elles ne fussent enceintes d'un enfant de la race maudite. Seules les vierges furent conduites en captivité. »
+
+« Ainsi Babylone triomphait enfin de Ninive, après six siècles d'une lutte acharnée. »
+
+--- Nous ne saurions mieux terminer ces passionnants récits, fit alors Nephtali, que par la belle prophétie de Nahum. Les prophéties sont utiles en ceci que les fidèles, impressionnés, tendent naturellement à les réaliser. C'est ainsi que pour notre modeste part nous autres, Juifs pacifiques, nous avons pris Ninive.
+
+« Le destructeur vient contre toi, ô Ninive ! a dit Nahum, il vient assiéger tes forteresses. Assyrien, mets des sentinelles sur le chemin, fortifie tes reins, rassemble tes troupes. »
+
+« Mais ce sera en vain, car le Seigneur va punir l'insolence avec laquelle tu as traité Jacob et Israël. »
+
+« L'ennemi fera marcher ses plus vaillants hommes ; ils iront à l'attaque d'une course précipitée ; ils se hâteront de monter sur la muraille et ils prépareront des machines où ils seront à couvert. »
+
+« Ces grandes portes, par où les peuples entraient jadis comme des fleuves, seront brisées. Le temple sera détruit jusque dans ses fondements. Ninive était remplie d'habitants comme une piscine d'eau. Elle a crié aux fuyards : « Demeurez. » Mais personne ne détourna la tête. »
+
+« Pillez l'argent, pillez l'or ; ses richesses sont infinies, car sa magnificence était au-dessus de tout ce qu'on peut imaginer. »
+
+« Ninive a été pillée, déchirée, dépouillée de tout, anéantie. »
+
+« En quel endroit du désert rencontrerais-je maintenant ce repaire de lions ? »
+
+[]()
+
+[]()
+
+# Chapitre 17.
+
+## Corruption de Balthazar.
+
+Gloire de Nabuchodonosor. --- Ses successeurs. --- Babylone pacifique. --- Cyrus et ses conquêtes. --- Inaction de Balthazar. --- Sa vie au harem. --- La reine délaissée. --- Parmi les concubines. --- Les mignons du roi. --- Les batailles au harem. --- Duel de femmes. --- L'extrait de chanvre. --- Dans le sang. --- Révolte d'Anouké.
+
+« Depuis la chute de Ninive, reprit le lendemain Phalazar, vous savez à quel degré de splendeur l'empire babylonien s'est élevé. Nabopolassar est monté sur le trône il y a quatre-vingts ans. Depuis, le monde civilisé tout entier a dû reconnaître notre suprématie. »
+
+--- En Asie du moins, rectifia Nephtali.
+
+--- Je passerai sur ces événements que vous connaissez. Nabuchodonosor, fils de Nabopolassar, éclipsa la renommée des plus fameux rois de Ninive. Il soumit les Phéniciens, les Égyptiens et vos compatriotes, mon bon Nephtali. Je ne puis, moi, trop déplorer cet événement, puisqu'il m'a valu le plaisir de faire votre connaissance.
+
 ...

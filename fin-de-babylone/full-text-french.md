@@ -1835,4 +1835,250 @@ Jamais ne furent pron oncées paroles plus impies. Voyez ces pierres alignées q
 
 Vietrix rentra chez lui encore tout secoué par l'affreux récit du duel. Il était de bonne heure encore et tout son personnel était debout.
 
+Ses esclaves lui demandèrent avec anxiété s'il était vrai que la ville dût être bientôt investie. C'était le bruit qui courait de plus en plus, mais il n'en savait pas plus long qu'eux. On savait seulement que des étrangers qui avaient voulu prendre certaines routes étaient rentrés précipitamment en ville.
+
+Son valet et sa cuisinière se contentèrent des vagues renseignements que possédait leur maître et s'en furent coucher. Mais Anouké, curieuse et bavarde ce soir-là, lui posa d'interminables questions. Elle était intelligente et fine, et Vietrix, plusieurs fois, ne sut trop quelles explications lui donner.
+
+Il s'accoutumait décidément à cette petite.
+
+Et bon gré, mal gré, il ne pouvait la considérer comme une petite bête qui lui tenait tête. Ces fillettes brunes avaient donc aussi une âme ?
+
+--- Ecoute, lui dit-il, écoute, quand Anouké lui eut dit bonsoir, tout à l'heure, tu viendras dans ma chambre.
+
+--- Et pourquoi ?
+
+--- J'ai, j'ai ...
+
+--- Quoi ?
+
+--- J'ai à te parler.
+
+--- Je ne viendrai pas !
+
+--- Tu ne viendras pas ! C'est un peu fort ! Je suis ton maître, après tout. Je te ferai fouetter !
+
+--- Ça m'est égal, je ne viendrai pas !
+
+Et, légère, elle disparut.
+
+[]()
+
+# Chapitre 18.
+
+## Au Temple de Mylitta.
+
+La prostitution des femmes mariées. --- Le choix. --- Le prêtre de la déesse d'Amour. --- Le culte d'Istar-Mylitta. --- L'éducation d'amour. --- La guerre et l'amour. --- Philosophie de la prostitution sacrée. --- Les hiérodules.
+
+Vietrix, un beau matin, décida de se rendre au temple de Mylitta. Sa qualité d'étranger l'y autorisait. Il estimait justement qu'il eût été sot de manquer l'excellente occasion qui se présentait. Selon la loi, en effet, toute femme babylonienne était, une fois dans sa vie au moins, tenue d'aller au temple, afin de s'y livrer à un étranger.
+
+--- Voilà une façon de comprendre l'hospitalité que je puis taxer de complète, se dit Vietrix.
+
+Mais, de prime abord, le Gaulois fut désillusionné.
+
+Les femmes se tenaient dans une longue pièce en corridor attenante au temple. Par un système de cordages tendus, elles se trouvaient séparées des hommes qui circulaient, faisant leur choix.
+
+Ces femmes portaient, selon le rite, une couronne de feuillage sur la tête. Les unes se tenaient avec décence, les autres, au contraire, ne craignaient point de montrer leurs seins, leur ventre, leurs jambes ou leur croupe. Chacune exhibait la partie chez elle la mieux en état. Car nulle d'entre elles n'était très jeune. Certaines étaient, en outre, affectées de désagréables infirmités : celle-ci avait dû recevoir quelque flèche qui lui avait crevé l'œil, cette autre boitait, dans un coin se tenait une petite bossue.
+
+Quand un homme avait arrêté son choix, il prenait quelques pièces de monnaie et les jetait sur les genoux de la femme en disant : « J'invoque la déesse Mylitta. » Celle-ci ne pouvait se soustraire à l'invitation. Elle prenait l'argent, qui dès cet instant devenait sacré, et suivait l'étranger, qui la conduisait généralement dans un des hôtels qui entouraient le temple. Il y en avait de tous prix.
+
+Vietrix se fût, à la nécessité, accommodé de quelques-unes des femmes qui étaient là. La plupart d'entre elles, le visage abîmé par le fard, possédaient d'assez beaux corps. Elles appartenaient à la classe moyenne et étaient habituées à une vie plus active que celle de l'aristocratie, mais moins fatigante que celle du peuple.
+
+Ce qui l'indisposait le plus contre la coutume du temple de Mylitta, c'était, à la vérité, l'aspect des étrangers qui circulaient du même côté des cordes que lui. Ils ne brillaient pas par la distinction ni l'élégance. Tous semblaient des aventuriers, nomades, colporteurs, traîne-savates de tous les ports marins et fluviaux. Ils venaient là évidemment parce qu'ils n'avaient, selon l'expression courante, rien de mieux à se mettre sous la dent. Leurs moyens financiers ne leur permettaient point de s'offrir des courtisanes de luxe. Vietrix fut vexé d'être mêlé à cette tourbe.
+
+---
+
+Tandis qu'il cherchait un moyen de s'évader sans que son abstention peu polie fût remarquée, il se sentit tirer par la manche. C'était l'un des jeunes gens en tunique blanche qui vaquaient aux soins et à la police du temple de la déesse, sous la direction des prêtres.
+
+« Aurais-je commis quelque infraction aux rites ? » pensa Vietrix.
+
+--- Suis-moi, lui dit simplement l'éphèbe.
+
+Vietrix obéit. Ils sortirent de la grande salle, et après avoir traversé plusieurs corridors parvinrent à l'appartement, assez joliment installé, du grand prêtre. Celui-ci était un homme d'âge mûr, aux traits un peu efféminés, le regard voilé, la lèvre sensuelle et parfois sarcastique.
+
+--- Je suis enchanté, dit-il à Vietrix, qu'un étranger de ta classe ait daigné rendre visite au temple dont j'ai la garde. Crois bien que la déesse sera enchantée du sacrifice que tu devais lui consacrer.
+
+--- Oh ! oh ! Mais tout le plaisir est pour moi, protesta poliment Vietrix.
+
+Le prêtre hochait la tête.
+
+--- Les bonnes dames réunies dans la grande salle, à l'encan d'une clientèle assez peu ragoûtante, n'ont pas su te satisfaire, je le devine. Certaines sont là depuis des années, attendant vainement un preneur. Quel encombrement ! N'était le respect que nous devons aux lois qui obligent toutes les femmes mariées babyloniennes, toutes ...
+
+--- Toutes ? fit Vietrix.
+
+--- A venir ici une fois, il y a longtemps que j'aurais expulsé d'office ces vieilles chipies. Mais elles ne se laisseraient pas faire. Et je crois même que certaines sont revenues plusieurs fois par fraude. Qu'ai-je à attendre d'elles, moi ? Rien. L'étranger qui les prend est le plus pauvre, car il n'oserait, malgré tout, offrir à une personne bien en chair le misérable billon qu'il possède ! J'ai vu récemment ici un de ces hommes venus du lointain pays d'Orient que l'on nomme Cathaï, un petit homme tout jaune avec des yeux bridés, jeter à une pauvre bonne femme toute ratatinée trois ou quatre de ces petites monnaies de cuivre percées d'un trou qu'ils nomment sapèques. Au marché, on ne lui eût pas donné une gousse d'ail pour la même somme ! Ce n'est pas avec de pareils cadeaux, tu le comprends, que je puis entretenir mon coin du temple !
+
+« Où diable le bonhomme veut-il en venir ? » se disait Vietrix.
+
+--- Et puis enfin, tu le comprends, je ne puis pas exposer les nobles matrones de la ville, les jeunes mariées qui considèrent, mal à propos, l'offrande à Mylitta comme une corvée, toutes les jolies femmes amoureuses de leur corps au contact de cette racaille mal soignée.
+
+--- Mais les rites ne prescrivent-ils pas sévèrement l'égalité pour toutes ? ...
+
+--- Peuh ! peuh ! Il est avec le ciel des accommodements. Jeune étranger, tu t'es fourvoyé. Quelqu'un de ta qualité ne s'introduit point dans le temple par la porte officielle, mais bien par la discrète entrée réservée sur l'arrière ... Je suis, à la vérité, fort content de ta visite ... Depuis que les armées de Cyrus ont entrepris notre investissement, les femmes sont plus nombreuses --- beaucoup avaient négligé leur devoir --- et les visiteurs se font rares. Je n'ai plus d'étrangers de qualité à mon temple. Alors ? Les belles filles qui viennent ici remplir le rite et sont pressées de rentrer chez elles ne peuvent s'en retourner bredouilles ! Je te l'avoue, à toi qui me parais discret et doué de philosophie, je me trouve obligé, dans les ténèbres, de jouer moi-même le rôle réservé aux étrangers.
+
+--- Mais cela n'est point désagréable !
+
+--- On se lasse de tout. Ces dames sont, ces jours-ci, nombreuses. Je ne sais plus où donner de la tête. Et puis, si le travail est mauvais, elles sont mécontentes. Elles viennent en rechignant, mais partent furieuses si l'opération fut manquée ! Ah ! les contradictions de l'âme féminine ! Je préférerais, quant à moi, vivre paisible dans un petit temple de la campagne, cultivant mes légumes, en la seule compagnie de mon jeune acolyte que tu vis tout à l'heure ...
+
+« Encore un homosexuel, » se dit Vietrix.
+
+--- Bref, noble étranger, j'attends tout à l'heure la visite de l'une des matrones les plus considérables de la ville. Voici deux jours qu'elle m'est annoncée, et j'ai à son intention préparé le salon des glaces ... C'est une personne altière et magnifique, un vrai morceau de grand prêtre ... Je te la confie ...
+
+--- Je suis vraiment confus, dit Vietrix. Mais n'ai-je pas à craindre de cette grande dame quelques rebuffades, une mauvaise volonté qui me gêneront peut-être ?
+
+[Pl. 11. --- Suzanne Surprise par les Vieillards. _P.-P. Rubens inv._ _L. Vorsterman sc._]()
+
+--- Elle se soumettra aux rites, avec plaisir je ne puis l'affirmer, mais avec grandeur et sérénité d'âme ... Celle-ci est instruite, en effet. Dans ses salons ont passé tous les philosophes et poètes et astrologues babyloniens. Elle sait pourquels impérieux motifs la prostitution, ne fût-ce qu'une fois en sa vie, lui est imposée.
+
+--- Et, si je ne suis pas indiscret et si je n'abuse point de tes précieuses minutes, puis-je savoir dans quel esprit cette coutume fut rendue obligatoire ?
+
+---
+
+--- Quand tu auras fréquenté les divers temples babyloniens, assisté aux cérémonies de Bel et d'Istar, tu comprendras peu à peu quelle est l'importance primordiale de l'acte sexuel dans le monde. N'ai-je point entendu dire que de faux prophètes et des intellectuels dévoyés tendent déjà, un peu partout, à le reléguer au second plan ?
+
+« Quel est le prix de la vie ? Mystère. Les puissances célestes et infernales nous firent divers cadeaux, ceux-ci bons, les autres mauvais, contestables pour la plupart. D'où je viens, où je vais, je l'ignore, à la vérité. Ne nous noyons pas dans la chimère. »
+
+« Je sais seulement que l'amour nous fut donné en légitime possession, je ne sais que cela. Je table donc sur cette réalité. L'autre plaisir à la mode par ici, celui des guerriers, n'est qu'un excitant, un condiment à l'amour. Les grands rois assyriens, un peu plus féroces que les nôtres, n'ont jamais massacré que pour se préparer de meilleures jouissances, de meilleurs spasmes dans le fond de leur harem bien garni. Il en est de même des sacrifices humains que nous perpétrons de temps à autre. Les théoriciens te vanteront les saines joies intrinsèques d'un bon assassinat. Ne les crois point. Tout ici-bas tend au seul spasme amoureux. Les Mages te le démontreront en quelques instants. Moi-même, si blasé que je sois, et le cerveau un peu usé par une longue carrière consacrée au culte de la déesse, je rends hommage encore à l'unique vertu de l'amour. »
+
+« Hélas ! permets-moi cette petite digression, on ne sait déjà plus faire l'amour ! Les préoccupations intellectuelles détournent peu à peu l'humanité civilisée de ce souci essentiel. On s'unit au hasard, à la hâte, sans souci de l'hygiène, de l'heure ni de la position des astres ! Où est-il le temps où, avec un ciseau et un fer rougi, le grand prêtre enlevait, dès le jeune âge, à tous les enfants de l'un et l'autre sexe, les signes de la virginité ? Ah ! quelle peine nous avons, nous autres hiérodules, à maintenir quelques traditions, la prostitution obligatoire, l'orgie sacrée ! Le métier de prêtre de Mylitta devient chaque jour plus ingrat ! »
+
+« Je ne veux point attaquer le mariage, institution pourtant récente à Babylone, mais je déplore cette étroitesse de vues qui tend de plus en plus à enfermer l'amour en de si étroites limites. Le mariage est nécessaire à la perpétuation d'une race, à l'équilibre des facultés, mais c'est une insulte à la divinité que de concentrer, par ce prétexte, sur un seul être toute la puissance d'amour enfermée en chacun. Vois nos grands commerçants, nos fonctionnaires, même nos illustres généraux, tout le clan des doctrinaires enfin. Quelle plate banalité, quelle absence d'enthousiasme sur leur face ! Une vie trop stricte de famille a rabaissé leur âme, jadis hautaine et grande, à rien du tout ! »
+
+« La prostitution masculine et féminine doit subsistera côté du mariage. Elle entretient la jeunesse, l'enthousiasme. Elle atténue le caractère égoïste, dangereux du mariage, elle fait en même temps mieux goûter, par réaction, les joies du foyer. »
+
+« Je n'entends point parler ici de la basse prostitution qui se cache --- hélas ! un tel usage s'étend déjà sur tout Babylone pour sa perdition ! --- mais de la prostitution claire, au grand jour, la prostitution qui n'a point perdu son caractère religieux traditionnel. Oui, dans un Etat bien organisé, la prostitution doit être religieuse et obligatoire. »
+
+« A nous autres, hiérodules des deux sexes, a été confié ce rôle sacré de maintenir l'offrande d'amour. Dès le jeune âge, nous avons livré notre corps aux fidèles. Et c'est pourquoi tu me vois aujourd'hui un peu fatigué. Nous avons veillé sur les temples élevés à l'amour, nous avons courbé les hommes devant la beauté resplendissante et nue de nos prêtresses et les femmes devant les images de gigantesques phallus. Nous avons prêché partout la parole d'amour. »
+
+« Nous n'avons pas voulu qu'un être pût dire : --- Cet autre être est à moi seul ! --- Nous ne l'avons pas voulu pour sa tranquillité à lui, pour la tranquillité de l'État, pour la gloire de la déesse et le plaisir de l'humanité future ! Tout à l'heure, une femme réputée pour sa vertu va venir se prostituer entre tes bras. Songe à faire exactement, brillamment ton devoir, ainsi tu rempliras le rôle social qu'à prévu le législateur. Voici le petit salon des glaces, je t'y laisse. Il y a sur la table quelques rafraîchissements. Veuille seulement, pour plus de commodité et afin de ménager les susceptibilités de la dame, me remettre directement le petit cadeau d'usage ... Oh ! il est laissé à ton entière discrétion ! »
+
+[]()
+
+# Chapitre 19.
+
+## Infortune de la Chaste Suzanne.
+
+Réveil de la jolie Babylonienne. --- Le massage. --- La toilette. --- Les cheveux. --- Les fards. --- La robe. --- Les bijoux. --- La vertu des pierres. --- La couronne de fleurs.
+
+A la suite de ses nombreux exploits guerriers le général Dinosor avait obtenu une des places les plus importantes de l'administration babylonienne. Rien ne se faisait dans la ville, vente, louage, sans contrats en bonne et due forme. Les droits relatifs à ces contrats étaient assez élevés, ce qui en garantissait l'exécution. En outre, il arrivait assez souvent que les hauts trafiquants fissent appuyer de quelques arguments monétaires l'approbation officielle qui leur était nécessaire. Parfois même l'administration touchait directement des deux mains. Bref, la place de directeur de l'enregistrement qu'occupait le général Dinosor était une bonne place, une place sûre, une place de tout repos.
+
+---
+
+La belle Suzanne Dinosor, son épouse, s'éveilla, ce jour-là, de sa sieste d'assez fâcheuse humeur. Des cauchemars avaient hanté son sommeil. Les deux esclaves qui se tenaient de part et d'autre de sa couche en bois de santal incrusté d'or et d'émeraudes relevèrent brusquement leur chasse-mouches et demeurèrent immobiles dans une attitude respectueuse. Suzanne reprit peu à peu ses sens et s'allongea voluptueusement sur les coussins, de toute la souplesse de sa radieuse nudité. C'était une splendide femme que l'approche de la cinquantaine n'avait pas encore éprouvée, grâce aux soins méticuleux dont elle avait toujours entouré sa beauté. Ses seins puissants, son torse large, son ventre majestueux, ses cuisses évasées, ses jambes fines, ses pieds menus, son corps tout entier resplendissait sous le revêtement d'une peau dorée, au grain d'une extrême finesse. Quelques poils follets couraient de-ci de-lè, sous les aisselles, au bas-ventre, aboutissant à une toison soigneusement parfumée d'un parfum que la belle juive faisait venir, par courrier spécial, d'une distillerie de la banlieue de Jérusalem. Car la femme du général Dinosor était Juive.
+
+---
+
+Ayant remis en ordre ses boucles de cheveux, elle attira sur elle, plutôt par coquetterie que par pudeur, un voile couleur jonquille, orné de pois noirs, et s'en couvrit négligemment les seins et le ventre. Puis d'une voix martelée où perçait sa mauvaise humeur, elle dit à l'une des esclaves :
+
+--- Rahama, fais-moi venir immédiatement Sahadrac. Toi, Gomer, tends-moi le miroir.
+
+Les deux esclaves s'inclinèrent et rapidement remplirent leur office.
+
+La jeune Gomer, une petite fille aux grands yeux noirs, approcha du lit une table d'albâtre aux pieds en X, sur laquelle étaient étalés les menus objets de toilette de sa maîtresse. Puis elle prit une étoffe de soie épaisse et l'arrosa d'une huile de sésame limpide et lourde. Ayant ensuite baisé tendrement les jambes que lui tendait Suzanne, elle commença à les oindre doucement du liquide embaumé. Elle enleva le voile jonquille dont s'était couverte sa maîtresse et enveloppa peu à peu le corps tout entier dans son caressant massage. De ses mains agiles elle modelait les seins, pétrissait le ventre, brutalisait la courbe admirable des reins. Sous les frissons qui lui couraient des pieds à la tête, Suzanne sentit peu à peu sa lassitude disparaître, son énergie renaître, et ce fut assez courtoisement qu'elle accueillit l'eunuque Sahadrac.
+
+---
+
+--- Sahadrac, lui dit-elle, je dois me rendre tout à l'heure au temple de la déesse Mylitta. Le général et moi avons décidé que l'on ne pouvait remettre plus longtemps cette cérémonie. De fâcheux présages courent sur Babylone. J'ai vu récemment mon compatriote Daniel qui jadis, tu le sais, me tira d'un mauvais pas. Il n'augure rien de bon des événements de Perse. Quant à moi, je sais que je dois me soumettre, ainsi que les autres femmes de Babylone qui ont négligé d'accomplir le rite, aux obligations du culte de mon mari. Ce n'est pas gai, mais enfin il faut en passer par là. Quelle est ton opinion ? Dois-je me vêtir pour la cérémonie ? Il me semble que pour satisfaire le caprice de quelque misérable, une toilette sommaire serait suffisante.
+
+--- Je pense que vous devez, au contraire, avoir tout égard à cette cérémonie. Il ne s'agit point ici, permettez-moi l'expression, indulgente maîtresse, de faire l'amour à la légère. Ce n'est point ici adultère de fantaisie. Il s'agit de rendre hommage à la déesse de l'amour.
+
+--- Tu as raison, Sahadrac. Mais fais mettre les rideaux à ma chaise et que pour mon retour un bain soit préparé où tu plongeras, outre les parfums, les préparations hygiéniques et magiques d'usage. Je veux qu'il ne reste rien du contact de ma peau délicate avec celle du rustre que le hasard me destine. J'ai dit.
+
+L'eunuque, après un grand salut, sortit à reculons.
+
+---
+
+Le voile jonquille que la reine avait replacé sur sa poitrine pendant la réception du serviteur ex-mâle fut à nouveau enlevé. La reine, debout, s'étira. Ses articulations puissantes craquaient, ses membres s'allongeaient, sa croupe se tordait. Elle se considéra un instant dans le grand miroir, puis, satisfaite, ordonna qu'on procédât à sa toilette.
+
+Elle s'assit sur un meuble de bois précieux, et Gomer commença de peigner sa chevelure. Ses cheveux noirs, coupés demi-courts, étaient d'une telle douceur qu'ils semblaient caresser la main qui les lissait. D'un petit flacon de rubis, l'esclave avait fait couler dans sa main quelques gouttes d'une huile pure, d'une huile de violette dont elle les enduisait. Puis d'un peigne fin elle en démêla les boucles qui se reformèrent une par une sur la nuque blonde de Suzanne.
+
+Ensuite l'esclave ouvrit un petit coffret d'albâtre orné de motifs érotiques. Il était rempli de fards. A l'aide de pinceaux, elle peignit d'abord au bleu les paupières de sa maîtresse, les allongea d'un soupçon de noir. Le visage fait au rouge, par teintes dégradées, elle toucha le coin des lèvres, des yeux, le cou, derrière l'oreille, la pointe des seins, le bas-ventre et le bas des reins de plusieurs pointes en triangle de cette rare couleur pourpre qui ne se trouve qu'en Chaldée.
+
+Cependant Rahama avait chaussé Suzanne. Les sandales à quartiers couvraient seulement le talon. Un anneau d'or au travers duquel s'enserrait l'orteil servait à retenir la semelle, ainsi que des cordons de soie qui se nouaient sur le cou-de-pied. Puis elle passa à sa maîtresse une longue tunique de lin d'une blancheur éclatante qui descendait jusqu'au talon et se terminait par des franges dorées, mais laissait l'épaule et le sein droits à découvert. Cette tunique, quoique légèrement empesée, permettait de distinguer les formes du corps féminin. Suzanne revêtait ensuite la veste de brocart à rayures jaune et noir, brodée de perles violettes.
+
+---
+
+Enfin d'un bassin profond, fait de jaspe, incrusté de métaux, les deux esclaves sortirent les bijoux, Gomer attacha aux oreilles de la reine des boucles d'or en forme de croix de Malte, Rahama aux chevilles des bracelets d'or surchargés de pierreries. Aux bras et aux poignets furent mis les larges anneaux incrustés d'émeraudes et de diamants. Puis d'un coffret dont l'eunuque avait la garde fut extrait un magnifique collier de perles roses que Suzanne se fit attacher autour du cou. C'était une pièce unique qu'elle ne sortait que dans les grandes circonstances. Par l'entremise d'un nommé Salomon, de Jérusalem, elle l'avait acquis d'un autre de ses compatriotes dénommé Meyer, qui avait profité de la captivité pour établir des pêcheries de perles dans le golfe Persique. Ce collier avait été volé en route. L'affaire avait fait grand bruit. Suzanne, dont la coquetterie avait toujours été le péché mignon, n'avait eu de repos que Dinosor ne lui eût acheté le fameux collier. Le général y avait en fin de compte consenti. Bah ! ce ne seraient jamais que les contribuables qui feraient les frais !
+
+---
+
+Aux doigts Suzanne se passa diverses bagues. L'aventure qu'elle allait risquer était dangereuse. Elle connaissait les vertus des princes et tenait à se prémunir contre tout accident dans l'amoureuse entrevue du temple de Mylitta. Elle prit donc de l'améthyste qui éloigne les poisons et s'oppose aux fumées du vin : elle n'eût point aimé avoir affaire à un ivrogne ; du rubis qui garantit de l'infection de l'air, chasse la tristesse du cœur et surtout invite à la continence : pas d'excès en pareil cas ; le corail qui arrête le sang et invite au sommeil : quoi de meilleur que de s'abstraire ainsi entre les bras du vilain ? l'émeraude qui évite l'apoplexie, souverainement désagréable à la minute suprême ; le diamant enfin, beaucoup de diamant, ce pur diamant qui fortifie le cœur et empêche d'être enceinte : cela eût été une véritable catastrophe ?
+
+---
+
+La toilette enfin terminée, les deux esclaves s'agenouillèrent à quelques mètres de leur maîtresse. Ils regardaient si tout était bien d'accord et s'il n'y avait point de faux plis. Cependant Suzanne s'était absorbée à nouveau en ses pensées. De si jolis préparatifs pour satisfaire quelque croquant !
+
+--- Partons ! dit-elle impérativement.
+
+---
+
+Elle monta dans sa chaise et donna l'adresse du temple. Le général Dinosor était à ses bureaux.
+
+La décision arrêtée ferme que son épouse se prostituerait au caprice du passant, il avait préféré s'abstenir de toute effusion inutile, sinon ridicule.
+
+Il devait affecter d'ignorer en quel lieu la belle Suzanne passerait sa journée.
+
+Le général Dinosor se flattait d'avoir quelque race et une certaine allure. De plus, il était un fonctionnaire accompli.
+
+---
+
+Suzanne fit seulement arrêter la chaise chez un marchand de fleurs, le mieux achalandé de Babylone. Elle demanda une jolie couronne de fleurs des champs tressée de feuillage. On s'empressa. De jolies ouvrières lui tressèrent rapidement un ravissant diadème. Elle se regarda plaisamment dans un miroir, mais comme la chaise se mettait de nouveau en marche, elle entendit des rires sonores à l'intérieur de la boutique.
+
+« Si la chair n'est pas toute jeune, disaient des voix gamines, du moins les fleurs sont fraîches. La déesse Mylitta sera contente ! »
+
+Suzanne fit semblant de ne pas entendre, mais, furieuse, elle ferma hermétiquement les rideaux de sa chaise.
+
+[]()
+
+# Chapitre 20.
+
+## Le Sacrifice a la Déesse d'Amour.
+
+Perversion babylonienne. --- Le salon des glaces. --- Dans les ténèbres. --- Suzanne convertie. --- La surprise au bain. --- La condamnation pour adultère. --- Intervention de Daniel. --- Suzanne calomniée. --- Le marché du mariage. --- La folle enchère. --- Triomphe de Suzanne. --- L'adjudication.
+
+Les intentions sévères de Suzanne Dinosor ne devaient point tenir contre l'humeur amoureuse et l'étreinte puissante de Vietrix, ce jour-là. Le général avait mené durant toute sa carrière paillarde existence. Il avait sous tous cieux fréquenté d'expertes courtisanes et pratiquait ce genre de perversion sexuelle qui était de mode à Babylone. Fort âgé, puisqu'il avait pris part à la plupart des grandes expéditions de Nabuchodonosor, il avait besoin de quelques condiments aux rares jours où il humait maintenant la couche de son épouse. Il se gorgeait de drogues et avait soin de faire préparer Suzanne à son exemple par leurs petites esclaves égyptiennes et juives. L'amour à Babylone ne se jouait plus dans un certain monde que sur la gamme des sensations énervantes, à fleur de peau et à l'inverse des normales méthodes. Suzanne sortait des bras du brave militaire plutôt brisée que reposée.
+
+---
+
+Les glaces de la chambre d'honnour ne la satisfirent point de prime abord, et elle adressa au prêtre quelques vifs reproches sur ce manque d'égards. La prenait-on pour une prostituée dont le devoir est d'exciter le client ? Si cet étranger n'était point satisfait, tant pis ! Elle rechigna contre l'ameublement composé d'un divan, deux tabourets, au mur une sculpture de la bonne déesse Istar-Mylitta et en face, accroché, un phalle en assez belle parade.
+
+Elle réclama les ténèbres, mais quand l'acte eut été consommé, le désir de partir tout de suite l'avait quittée. Entre les bras de l'homme jeune et fort, sa volonté s'était fondue, et elle lui avait le mieux du monde rendu son étreinte. Elle le pria donc de rouvrir la fenêtre qui donnait sur les jardins et prit sur le divan une confortable position. Puis elle le questionna longuement. Quand une femme a joui par un homme, tout l'intéresse de lui, mais fût-il un génie, peu de chose auparavant.
+
+[Pl. 12. --- Suzanne et les Vieillards. _Le Dominiquin inv._]()
+
+Vietrix lui conta ses aventures, assis au rebord du divan, tandis que la belle Suzanne se vautrait voluptueusement autour de lui. Ses hanches puissantes, ses seins abondants mais toujours durs se reflétaient à l'infini dans les miroirs habilement disposés. Elle avait pris la main de son amant et s'efforçait distraitement de l'égarer. La bonne déesse Istar et le phallus veillaient sur ce tableau familial.
+
+A son tour, Vietrix lui demanda quelques détails sur sa personne.
+
+---
+
+--- Je suis Juive, lui dit-elle, mais je naquis au pays babylonien. Toute jeune, pauvre orpheline, innocente et timide, --- on m'appelait la chaste Suzanne, --- je fus mariée à un homme de ma tribu du nom de Joachim. C'était un saint personnage, mais plus réservé encore que moi-même sur la question d'amour, craignant sans doute ces terribles emportements de la chair contre lesquels chez nous les prophètes, depuis cinquante ans, hurlaient à qui mieux mieux ; il me respecta et oublia même de m'ôter la virginité.
+
+« Cela se savait dans le pays, et tous les célibataires d'Israël ou de Juda, jeunes godelureaux ou riches vieillards, ne manquaient point, quand ils me rencontraient, de me faire un doigt de cour. Ils me surveillaient, m'épiaient comme une proie certaine, qui tomberait un jour ou l'autre entre leurs griffes. »
+
+« Un beau jour, par la forte canicule, j'avais décidé de prendre un bain dans le bassin qui se trouvait au milieu du jardin fruitier attenant à notre maison. Joachim avait quelques biens. J'expédiai mes deux esclaves chercher les huiles, les parfums, les pommades nécessaires à ma toilette. Oh ! en ce temps-là, elle n'était guère compliquée ! Il est vrai que je me soignais pour moi seule, ce qui est une des plus douces voluptés des très jeunes femmes. Je leur donnai ordre de verrouiller la porte. »
+
+« Tandis que délicieusement je plongeais mes membres dans le petit bassin, j'entendis soudain comme un bruissement de feuille. Horreur ! entre les larges palmes je distinguais en même temps quatre yeux luisants, puis deux figures de vieillards contractées d'un affreux rictus. Ah ! les vilains ! Indignée, je sautai sur mes vêtements, m'efforçant de dissimuler de mes mains mes charmes à leur vue. Mais ils s'avancèrent vers moi. Je les reconnus alors : c'étaient deux hauts magistrats de la communauté, délégués à juger tous nos crimes et délits avec la haute approbation du gouvernement babylonien. »
+
+--- Il n'y a personne ici, me dit l'un d'eux. La porte est bien close. Suzanne, nous t'aimons tous les deux, sois à nous !
+
+--- Tous les deux ! Vous n'y allez pas de main morte ! Si je voulais tromper l'homme qui est mon époux, leur dis-je, moitié rires, moitié larmes, ce serait toujours avec mieux tournés que vous. Allons, sortez d'ici.
+
+« J'avais réussi à saisir ma chemise et retrouvé mon corsage. »
+
+« Mais ils semblaient avoir, eux, une idée derrière la tête. »
+
+--- Si tu ne veux pas te donner à nous, nous te jouerons un mauvais tour. Il est encore temps.
+
+--- Sortez ! Et je me mis à crier de toutes mes forces.
+
+« Alors ils ouvrirent eux-mêmes la porte et appelèrent plus fort que moi les passants, mon mari, mes servantes. »
+
+--- Un jeune homme vient de sortir d'ici avec lequel cette femme a commis le crime de fornication et d'adultère ! Nous en témoignerons ! Elle doit périr, c'est la loi. Du reste, nous sommes les juges. Et nous la condamnons à mort !
+
+« Ah ! ce fut déjà un joli scandale. Ils étaient tous enchantés, et mes amis, et mes adorateurs, et la foule, d'avoir pincé en flagrant délit la chaste Suzanne. »
+
+« Je fus donc menée à la prison. Jonchim était atterré et n'avait rien trouvé à dire pour ma défense. Peut-être l'homme auquel j'avais gardé ma fidélité en dépit de son incapacité se croyait-il vraiment trompé dès cet instant ! »
+
+« Je commençais déjà à regretter ma révolte d'honnête femme. »
+
 ...

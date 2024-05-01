@@ -2081,4 +2081,486 @@ A son tour, Vietrix lui demanda quelques détails sur sa personne.
 
 « Je commençais déjà à regretter ma révolte d'honnête femme. »
 
+« J'attendais mon sort, en prison, quand, au troisième jour, il se produisit un événement bizarre. Un jeune homme du nom de Daniel, qui m'avait à la vérité fait la cour, mais que j'avais à peine remarqué, avait réussi à obtenir de l'entourage du roi Nabuchodonosor, dont il faisait partie en qualité d'apprenti mage, de mignon, disaient les mauvaises langues, que les deux vieillards fussent interrogés par lui. Deux hauts magistrats à barbe blanche interrogés par un enfant, cela te donne une légère idée de l'anarchie qui régnait à la cour de cet excellent Nabuchodonosor. »
+
+« Daniel les confondit, paraît-il, les questionnant l'un après l'autre sur les détails de l'aventure. Ou plutôt on lui donna raison, car il était par sa position le plus influent. Le peuple m'acquitta et une condamnation à mort, selon la loi de Moïse, fut prononcée par acclamation contre mes deux accusateurs. »
+
+« On ne m'aurait point mise à mort. La sentence était de pure forme. Tous ceux que ma vertu avait décontenancés eussent, du reste, été navrés de la voir exécutée, non à cause de mon trépas, mais parce qu'ils tenaient à exercer une vengeance plus savante. »
+
+« Je m'étais donc refusée à deux hommes riches, importants, et qui m'eussent certes dédommagée honnêtement du sacrifice de ma virginité. J'avais appelé, fait du scandale, me fiant à la vertu de mes compatriotes comme à la mienne. J'étais jeune. »
+
+« Les vieillards, comme il est juste, furent bientôt graciés et du reste rétablis en leurs fonctions. Ils prirent tout de suite des airs avantageux, insinuant que s'ils ne s'étaient point défendus, c'est qu'ils avaient voulu, eux, me sauver ! Certainement, je leur en tiendrai gré. Je les avais peut-être remerciés déjà ! Nous étions de connivence ! »
+
+« Quant au rôle de Daniel, il était clair pour tous : c'était lui le jeune homme qui s'était enfui du jardin. Ah ! j'avais bien raison de choisir un amant en place et expert, de toutes façons, aux choses de l'amour ! »
+
+« Pour les moins prévenus, mon affaire paraissait compliquée. Les hommes, quoi qu'ils eussent fait, avaient raison, la femme tort. C'était vraiment fâcheux qu'une fille, orpheline comme moi, mariée à Joachim, la crème des hommes, se fût mise dans ce cas ! »
+
+« Bientôt je fus insultée dans la rue par les femmes et les gamins. Joachim, qui ne méritait ce titre ni d'une façon ni de l'autre, fut traité de cocu. Ses parents lui montèrent la tête contre moi. Il en arriva à la conclusion formelle que, soit avec l'un, soit avec l'autre, je l'avais dû tromper. Cette idée s'ancra en son cerveau. Et, en fin de compte, il me répudia. »
+
+« Ma réputation était détestable au quartier juif. Mon acte de vertu, ma chasteté offensée, ma beauté aussi, m'avaient valu la haine de tous. Eût-elle été mille fois violée, salie et de toutes façons, une femme doit se taire, toujours se taire ! Je dirai plus : elle doit préférer la flétrissure au scandale ! ... »
+
+---
+
+« J'avais alors vingt ans. Je résolus à mon tour de me venger, à ma manière. Je partis. Je secouai la poussière de mes sandales en quittant le quartier de mes pères. Je n'y suis jamais retournée. »
+
+« C'était le mois de schebat, je me rendis résolument au grand marché du mariage, qui était en ces temps-là plus couru que maintenant. »
+
+« Sur la longue estrade, une centaine de jeunes filles étaient assises, couvertes d'un très léger voile qu'elles étaient prêtes à enlever pour se prêter à l'examen public de leur nudité de vierge. »
+
+« Car toutes les filles vendues là, la plupart dès leur nubilité, doivent être vierges. En ce temps, deux prêtres et un magistrat municipal, tous trois assermentés, étaient préparés à vérifier soigneusement cette qualité originale. C'était là un brevet officiel d'honnêteté, fort prisé à Babylone. Elles n'étaient pas nombreuses, les filles qui pouvaient se le faire décerner. Et les jeunes gens des meilleures familles, les plus beaux partis de la ville, préféraient venir chercher une épouse à ce marché au grand jour que dans l'ombre peu sûre de la maison privée. C'est te dire que tout ce qui porte un nom à Babylone et une foule de curieux, dont de nombreux Juifs, assistaient à l'enchère ce jour-là. »
+
+« Tu sais comment elle se pratique. Dans l'ordre fixé par les deux prêtres, dont l'un est choisi parmi les artistes et l'autre parmi les hiérodules, on fait l'appel des filles, de la plus belle à la plus laide. Celles qui sont belles, on les achète : le montant du prix demeure en partie leur possession propre ou celle de leur famille, et en partie sert à doter les filles laides qui ne sauraient sans cette compensation trouver preneur. »
+
+« Nous étions au marché, après vérification des experts et expulsion des vierges douteuses, plus de deux cents sur l'estrade. C'était la principale adjudication de l'année. »
+
+« Je me tenais modestement assise sous mon voile, résolue à attendre patiemment mon tour. Et je pensais à la tête que feraient mes compatriotes, et les patriarches et la jeunesse dorée et mon ex-mari lui-même, le faible Joachim qui, célibataire maintenant, était venu là dans l'espoir d'une acquisition possible, quand ils verraient se dresser, avec un incontestable et tout neuf brevet de virginité, celle qu'ils avaient ignominieusement traitée de courtisane. »
+
+« Le crieur avait reçu des mains du magistrat municipal la liste dûment dressée et vérifiée. Un silence se fit dans l'assistance et sur l'estrade. Je remarquai qu'un bon nombre de mes compagnes, dès cet instant, se préparaient à se lever et à rejeter leur voile. »
+
+« Mais elles furent déçues, car ce fut mon nom à moi, à moi, pauvre fillette ignorée, que le crieur avait lancé à la foule d'une voix vibrante : »
+
+« Suzanne Éliakins ! »
+
+Ah ! ces jambes étaient bien belles, cette hanche bien douce, ces seins bien polis quand je n'avais pas vingt ans !
+
+--- Mais je les trouve toujours de première qualité, fit Vietrix. Et je le prouve !
+
+Il y eut un petit quart d'heure d'interruption au récit ...
+
+---
+
+--- Est-ce bien dans le rite de Mylitta ? demanda seulement Suzanne pâmée.
+
+--- Je m'en moque ! répondit Vietrix, sûr que sa maîtresse à un tel instant ne protesterait pas contre le blasphème.
+
+---
+
+--- Quand donc mon nom fut prononcé, reprit Suzanne, je me dressai sans hésiter, rejetai mon voile, et j'apparus nue devant les quelques mille personnes qui formaient le public. Oui, moi que les tribunaux et mes compatriotes avaient hypocritement blâmée pour avoir été vue au bain par deux vieillards, je me mis nue devant tous, nue au grand soleil, forte de mon innocence, fière de ma beauté virginale !
+
+« Un murmure d'admiration qui me chatouilla doucement l'épiderme, je l'avoue, courut dans l'assemblée. »
+
+« Cependant, un quidam avait déjà proposé cinq mines d'or. Une voix lui répondit, et à ma grande stupéfaction, je reconnus celle de Joachim, mon ex-mari. L'imbécile se rendait donc compte maintenant de sa faute, mais il était trop tard ! »
+
+--- Six, sept, dix, douze mines ...
+
+« Joachim s'était tu. Toute sa fortune ne lui eût déjà plus permis de tenir l'enchère pour la possession de ce corps qu'il aurait jadis eu gratuitement et avait dédaigné. Il écumait d'impuissance. Ah ! que cela est donc bien d'un homme ! »
+
+« Cependant d'autres Israélites, tous mes contempteurs de jadis et les deux vieillards eux-mêmes avaient pris sa place. Ils se rejoignaient dans la foule, se concertaient, cherchaient sans doute à former un consortium. Je les entendais d'ici : au nom de leur religion, du dieu d'Israël, il ne fallait pas qu'une fille de leur race devînt l'épouse d'un infidèle. Ah ! les bons apôtres ! »
+
+« Les enchères montaient à une folle vitesse. Je me tenais toujours droite et nue, immobile et semblant ne rien voir. »
+
+--- Vingt, vingt-cinq, vingt-six, vingt-sept mines.
+
+--- Trente mines !
+
+« Il y eut une interruption. »
+
+--- Trente mines ! répétait le crieur. Allons ! Messieurs. Ça vaut mieux que cela, se permit-il même d'ajouter. Trente mines d'or ! J'ai dit : trente mines d'or. Ce n'est pas à droite ? Ce n'est pas à gauche ?
+
+--- Trente mines et deux talents, fit une petite voix futée. C'était mon compatriote Rosskild qui venait de parler, Rosskild, le grand banquier !
+
+--- Trente et une mines d'or, reprit le précédent enchérisseur, un bel homme en tunique blanche brodée qui portait sur le crâne le grand casque doré des généraux de cavalerie.
+
+« Son nom courait sur toutes les lèvres. C'était le fameux Dinosor, que ses campagnes de l'ouest venaient d'illustrer. Nabuchodonosor lui avait fait, disait-on, un don personnel de trois ou quatre petites villes pour le récompenser. »
+
+--- Trente et une et deux talents ! reprit Rosskild.
+
+--- Trente-deux mines, fit Dinosor.
+
+--- Trente-deux et deux talents !
+
+--- Trente-trois !
+
+--- Trente-trois et deux talents !
+
+« Tout le monde suivait passionnément le duel engagé entre les deux hommes, le vieux spéculateur richissime et le général aux razzias fameuses. Les chiffres étaient en effet d'importance ! »
+
+--- Trente-cinq mines, reprit Dinosor.
+
+--- Trente-cinq mines et deux talents.
+
+--- Trente-sept mines.
+
+--- Et deux talents.
+
+--- Quarante mines.
+
+--- Et deux talents !
+
+--- Quarante-cinq mines, cria Dinosor la voix dont il eût commandé une charge.
+
+Rosskild hésita un instant dans l'impressionnant silence.
+
+--- Quarante-cinq mines et un talent ! laissa-t-il tomber enfin.
+
+« Par esprit d'économie, il n'avait point voulu, dans ces hauts chiffres, en ajouter deux ! Il y eut dans toute l'assemblée un éclat de fou rire. »
+
+--- Cinquante mines ! dit Dinosor du ton de l'homme exaspéré qui va tout abandonner.
+
+« Je tremblai à cet instant, je tremblai, je l'avoue. Tomber entre les mains de l'affreux podagre et de sa bande ! Quelle abomination ! »
+
+« Mais sa passion sénile n'excédait sans doute pas cinquante mines d'or, une jolie fortune déjà ! »
+
+« Je fus adjugée au général Dinosor ... »
+
+---
+
+« Et voilà. J'ai vécu heureuse chez mon époux qui, ayant la gloire, eut bientôt l'argent. Il dut battre monnaie de ses villages pour payer mon enchère, et en vendre tous les habitants comme esclaves, mais bientôt il obtenait cette superbe place de directeur de l'enregistrement dans laquelle il a doucement vieilli. »
+
+« Je sais maintenant qu'il est aussi sot de mettre en cause ceux qui vous aiment que ceux que l'on aime. Je sais qu'il faut éviter le scandale et ne point étaler sa vertu. »
+
+« Dinosor, lui aussi, a vécu heureux. Si j'ai pris parfois quelques amants, depuis que ses belles facultés sont en déclin, il n'en a rien su, ou du moins il fait semblant de ne point le savoir. Je n'ai pas voulu exercer ma vengeance contre mes compatriotes. Je ne vois plus de temps à autre que Daniel, dont la carrière fut un peu semblable à la mienne. Et les deux vieillards, s'ils ne sont point morts, ont aujourd'hui oublié la chaste Suzanne. Du reste, je ne suis plus la chaste Suzanne. »
+
+---
+
+La nuit tombait. La belle conteuse se tenait étendue sur le dos, la tête dans les coussins, les jambes écartées, l'une pendant négligemment à terre, l'autre accrochée en l'air au sévère phalle. Ses seins s'éclairaient des derniers rayons cuivrés du soleil couchant ...
+
+Vietrix considéra en cette posture sa maîtresse, très légitime épouse de M. le directeur de l'enregistrement : en effet, elle n'était plus la chaste Suzanne.
+
+[]()
+
+# Chapitre 21.
+
+## Magie Noire et Religion.
+
+Le siège devant Babylone. --- Chez le mage. --- Les dieux infernaux. --- Le vent du sud-ouest. --- La guerre des bons et des mauvais génies. --- Les sept redoutables Anonnas. --- Les divinités supérieures. --- Histoire du monstre Oannès. --- Les mauvais rêves. --- Fâcheux présages.
+
+Les bruits qui couraient n'étaient point faux. Cyrus et son armée venaient bel et bien de mettre le siège devant Babylone. L'état de guerre fut proclamé partout, le contrôle des habitants et des vivres établi. Cependant, dans l'immense cité qu'arrosait l'Euphrate et dont la banlieue cultivée pouvait nourrir nombre d'habitants, le cas était dès longtemps prévu.
+
+L'existence de Vietrix se trouva donc assez peu modifiée. Il n'était pas fâché de voir une telle guerre. L'armée de Cyrus possédait des armes perfectionnées, des machines de siège compliquées que l'on pouvait voir des remparts. Et puis il avait bon espoir de réchapper au massacre qui suivrait logiquement la prise de la ville, au cas où le roi de Perse aboutirait, ce qui n'était pas du tout évident. Nephtali lui avait même confié, sous le sceau du secret, que les Juifs avaient des accointances avec les Perses.
+
+---
+
+Mat-Shan, Dhi-Sor, Poladamastor voyaient les événements d'un œil moins favorable. Ils étaient blasés sur ces grands conflits qui donnaient grande importance aux généraux et diminuaient d'autant la leur.
+
+Un jour donc, en compagnie de Vietrix, ils se rendirent chez le mage, afin que le Gaulois pût le consulter sur la croix gammée, et eux se renseigner sur l'état des Présages.
+
+La question de Vietrix produisit sur le personnage nerveux qu'était le mage un singulier effet.
+
+--- Je ne puis, je ne dois, répondait-il simplement.
+
+--- Qu'est-ce à dire ? dit Vietrix à Mat-Shan.
+
+--- Le symbole n'est pas de son ressort. Il ne veut pas même le connaître. La catégorie des dieux auxquels il a affaire, dieux de second plan, dieux infernaux, le rejettent sans doute. Et il doit user de diplomatie, parlementer avec eux, quoiqu'il ait à leur résister souvent ...
+
+--- Et puis-je savoir quelles sont les divinités en question ?
+
+---
+
+« Nos dieux de second plan, commença Mat-Shan, forment un peuple innombrable d'êtres pour la plupart invisibles. Ils sont distribués en clans, en tribus, en empires à travers l'univers entier. Ils se cantonnent chacun dans une fonction, un métier, qu'ils exercent d'un zèle infatigable, fidèles serviteurs de leurs princes ou de leurs rois. La plupart, hélas ! le poursuivent d'une haine inexpiable. »
+
+« Les ténèbres profondes ne les gardent point, en dépit des efforts des dieux bons et de leurs prophètes, pour les enfermer, jadis, en des cages. Les _gallon_, les _maskim_, les _alou_, les _outoukkou_, cent autres errent à travers le monde en liberté, infestant l'air de leur haleine qui tue. Voici longtemps qu'ils ont pris possession du redoutable vent d'Arabie, le vent du sud-ouest qui frappe non seulement les hommes et les animaux, mais aussi les moissons, les herbages, les arbres. Les génies de la fièvre et de la folie s'insinuent dans les maisons les mieux closes. La peste aux longues ailes noires vient parfois planer sur les foules en liesse. Des dieux lutins hantent les foyers, les follets errent au-dessus des marais, les ghoules attendent les voyageurs dans les lieux inhabités, les morts qui n'ont pas été honorés quittent subrepticement leurs tombeaux, la nuit, et se glissent dans le lit des vivants afin de leur sucer le sang. »
+
+--- Et qui les a vus ? demanda Vietrix.
+
+--- Nul ne saurait, de l'avis des prêtres, les voir sans effroi. Pour moi, j'avoue ne point les avoir rencontrés, mais, certes, le distingué mage eut cette occasion. Les uns portent peau de poisson ou pattes d'oiseau, queue de taureau et plusieurs paires d'ailes, chef de lion, de vautour, d'hyène ou de loup.
+
+---
+
+--- Je connais le vent du sud-ouest, fit sur ces entrefaites le mage. Son corps est celui d'un vieux chien, mais ses jambes s'équilibrent sur deux puissantes serres d'aigle ; ses bras, armés de griffes acérées, s'adaptent à quatre ailes éployées dont deux retombent derrière lui, deux se relèvent en haut et encadrent sa tête ; sa queue est d'un scorpion, son masque d'un homme aux gros yeux ronds, aux sourcils épais, aux joues décharnées, à la lèvre rougie et rétractée sur sa mâchoire branlante, le crâne plat et par-dessus deux belles cornes de chèvre.
+
+--- Voilà, je puis dire, un portrait qui n'est pas avantageux.
+
+--- Le vent du sud-ouest est si laid que si d'occasion il rencontre l'une de ses images, il s'enfuit épouvanté, remarqua Dhi-Sor.
+
+---
+
+--- Mais les dieux bons, questionna Vietrix, ne luttent-ils pas entre eux ?
+
+--- Ils ne font que cela. Ce sont, en général, aussi des monstres de belle allure, griffons, lions ailés, hommes à mufle de lion et ces beiiux taureaux à tête humaine, ces _lamassi_ couronnés de la mitre que tu as pu admirer à la porte du palais. Le combat est sans trêve, jamais fini, toujours rallumé. Mais, j'y songe, la nuit est belle, ce lieu plaisant. Poète Dhi-Sor, redis-nous quelques-unes des strophes héroïques de la guerre des dieux de seconde qualité.
+
+---
+
+Dhir-Sor se recueillit un instant, puis, sur le mode mineur, commença :
+
+« Là-haut, ils hurlent, ici, ils sont à l'affût, »
+
+« Ils sont les grands vers que le ciel a lâchés, »
+
+« Les puissants dont la clameur va par la cité, »
+
+« Qui versent à torrents l'eau du ciel, »
+
+« Ils sont les fils sortis du sein de la terre, »
+
+« Ils s'enroulent comme une couronne autour des poutres, »
+
+« Ils cheminent de maison en maison. »
+
+« La porte ne les arrête pas, le banc ne les repousse pas ; »
+
+« Ils se glissent comme un serpent sous la porte, »
+
+« Ils s'insinuent comme l'air par les joints du battant, »
+
+« Ils éloignent l'épouse des embrassements de l'époux, »
+
+« Ils arrachent l'enfant d'entre les genoux de la femme, »
+
+« Ils attirent le naïf hors de sa maison, »
+
+« Ils sont la voix menaçante qui poursuit par derrière ! »
+
+---
+
+Le poète s'était tu. Un nuage passait maintenant sur la lune. L'ombre s'était faite dans la petite salle. Il parut soudain qu'un frisson agitait le mage. Son corps tremblait et de sa bouche, que frangeait une légère écume, il chanta à son tour d'un ton saccadé :
+
+---
+
+« Les cinq Anonnas de la terre avaient des corps de lions, de tigres et de serpents. »
+
+« Le sixième était un vent d'orage qui n'obéit ni au dieu ni au roi. »
+
+« Le septième un tourbillon, une bourrasque mauvaise qui brise tout. »
+
+« Destructeurs du ciel, ils sont sept ! »
+
+« Sept ! sept ! Au creux de l'abîme, ils sont sept. »
+
+« Ils ont grandi dans le creux de l'abîme, »
+
+« Mâles ni femelles ne sont. »
+
+« Ils n'engendrent point, »
+
+« Ils n'écoutent ni la prière, ni la supplication, »
+
+« Sept ! sept ! Au creux de l'abîme, ils sont sept ! »
+
+« Comme des chevaux sauvages, ils ont vu le jour dans les montagnes sombres. »
+
+« Ils sont les ennemis d'Éa, »
+
+« Ils sont mauvais, mauvais, »
+
+« Et ils sont sept, ils sont sept, »
+
+« Au creux de l'abîme, ils sont sept. »
+
+---
+
+--- Calmez-vous, bon prêtre, lui dit Mat-Shan, calmez-vous.
+
+Le mage, en effet, avait pris un aspect effrayant. Ses traits s'étaient crispés. Ses membres suivaient la cadence de ses paroles. Allait-il entrer en possession ?
+
+Mais soudain il tira de sa poche un petit coffret, l'ouvrit et prit une pilule.
+
+--- Ce n'est rien, dit-il. Vous pouvez continuer.
+
+Et, en effet, grâce à la préparation magique, sa fièvre tomba, à la satisfaction générale.
+
+---
+
+--- Ce chiffre sept joue un grand rôle, je crois, dans votre hiérarchie divine ?
+
+--- Les dieux en ont généralement sept autres du rang immédiatement inférieur à leur disposition. Au premier degré, cependant, ils ne sont que trois, procédant du dieu suprême Ilon. Ces trois sont Anon, Bel et Éa, dieux du ciel ensoleillé, de la terre et des eaux. D'autres vous donneront des classifications différentes, mais celle-ci me satisfait. Ce que nous considérons en une divinité, c'est aussi bien l'émanation des autres. En Bel, nous adorons la vie et par le fait le soleil qui donne toute vie sur cette terre, nous adorons aussi l'immense système des planètes et des étoiles dont nos savants ont étudié la marche ; nous adorons aussi celui qui les englobe, l'origine et la fin.
+
+---
+
+--- Et quel est, dit Vietrix, ce poisson Oannès dont j'entendis maintes fois prononcer le nom ?
+
+--- Le poisson Oannès est l'éducateur des hommes. Habitant dans le golfe Persique, il en sortait au matin et s'entretenait avec ceux de ses frères qui n'étaient déjà plus amphibies. Merveilleusement intelligent, ce fut lui qui inspira aux humains, les lettres, les arts, les sciences, la géométrie, la culture, toute la civilisation enfin. Le soir, il rentrait dormir chez lui, sous l'eau. Oui, nous avons été éduqués par un poisson.
+
+« Oannès a été divinisé et il est le patron de Ninive. Mais j'estime, quant à moi, que ce mythe, qui remonte à des milliers et des milliers d'années, signifie tout simplement que notre race humaine est sortie de la mer. La première vie que Bel, le tout-puissant soleil, engendra, ce fut dans le fond des Océans. Elle se développa, le poisson devint amphibie et l'amphibie homme. Tel est le plus lointain souvenir des hommes. L'histoire d'Oannès est un symbole. »
+
+---
+
+--- Eh bien ! cela va-t-il mieux ? demanda Dhi-Sor, tapant sur l'épaule du mage, qui semblait toujours en proie à de sombres pensers.
+
+--- Cela ne va guère.
+
+--- El pourquoi ?
+
+--- Les temps sont difficiles. Vous connaissez les événements. Nous sommes assiégés et chaque journée m'apporte de pires indications sur le destin de Babylone.
+
+--- Le siège risquerait-il de mal tourner ? questionna poliment Vietrix.
+
+--- Hélas ! Les rêves sont de mauvais augure. C'est chez moi un défilé perpétuel de gens qui viennent se plaindre et me demander des petits sachets magiques pour mettre sous leurs oreilles, le soir. Vous connaissez sans doute les principaux songes néfastes ?
+
+--- Non. Et comme j'ai parfois moi-même des cauchemars, dit Vietrix, je serais enchanté ...
+
+---
+
+Le prêtre se recueillit un instant, puis, sur un ton de mélopée que soutenaient doucement Mat-Shan et Dhi-Sor, frappant en cadence de la paume de leurs mains :
+
+« Si quelqu'un voit dans son rêve de la chair de chien à son pied droit ... »
+
+« Si quelqu'un voit dans son rêve une griffe de bête à son pied droit ... »
+
+« Si quelqu'un voit dans son rêve de la chair de chien à ses deux pieds ... »
+
+« Si quelqu'un voit un chien mort ... »
+
+« Si quelqu'un croit tomber d'une poutre ... »
+
+« Si une femme, dans un rêve, voit un chien qui s'avance sur elle pour la posséder ... »
+
+« Si un homme, en rêve, voit qu'un chien se dispose à lui pisser dessus ... »
+
+« Si quelqu'un a vu en rêve un chien jaune entrer dans le palais royal ... »
+
+---
+
+« Tout cela est mauvais, très mauvais, ajouta le mage, qui semblait entrer en transes au rythme toujours accéléré de l'énumération. »
+
+--- Tous ces chiens, en effet, ne me disent rien qui vaille, appuya Mat-Shan.
+
+« J'ai consulté les entrailles de quelques animaux. Déplorables, mon cher Mat-Shan, déplorables ! Les intestins de l'âne sont tordus à droite, noirs et bleuâtres ! Les femmes enfantent des enfants sans oreilles ! La fumée sur la flamme s'oriente à contre-sens ! Enfin j'ai versé de l'eau dans le bol prophétique, j'ai imposé mes mains, et nul murmure de paix ne m'est monté aux oreilles ! Ah ! prenez garde ! prenez garde ! Babyloniens ! Le destin est sur vous ! »
+
+Sur ces tristes paroles, les visiteurs se retirèrent. Vietrix lui-même était ému. Mais il ne possédait aucune clarté nouvelle sur la fameuse croix gammée ! Et par ces temps troublés, les prêtres, débordés, n'avaient guère le temps do rechercher des interprétations perdues.
+
+Mais, chose singulière, depuis quelque temps il avait moins envie de rechercher la femme née sous la croix gammée. Sa maison en ordre, une bonne cuisinière, quelques amis, il ne se sentait pas mal ainsi ...
+
+[]()
+
+[]()
+
+# Chapitre 22.
+
+## Les Sacrifices a Bel.
+
+Sur les remparts. --- Promenade des esclaves lubriques. --- Le temple de Bel. --- Les maîtresses du dieu. --- La grande salle du temple. --- L'investiture des rois. --- La statue de Bel. --- Entrée de Balthazar. --- Sacrifice d'animaux. --- Sacrifices humains. --- Hommes et femmes. --- Le choix des garçons et fillettes. --- Le sacrifice des virginités.
+
+Les mois du siège passaient. Balthazar, qui avait longtemps gardé son insouciance, comprenait maintenant que l'affaire était grave et que Cyrus ne renoncerait pas à son entreprise. La famine commençait à se faire sentir en ville et les maladies se multipliaient.
+
+En effet, les travaux se multipliaient sous les remparts. On disait même que Cyrus avait entrepris de détourner le cours du fleuve Euphrate vers un ancien lac afin de faire entrer en ville ses troupes à pied sec.
+
+L'habitude du siège était prise. Le soir, sur les remparts, les Babyloniens se promenaient et échangeaient des plaisanteries et des injures avec les assiégeants.
+
+Les fêtes de Sacaca venaient de commencer. Balthazar avait résolu de leur donner un caractère particulier. On sait que, pendant ces fêtes, les esclaves vivent pendant cinq jours dans l'illusion qu'ils sont libres. Dans chaque palais, dans chaque clan, l'un d'entre eux esi même nommé maître et couronné d'une éphémère couronne. Le cinquième jour, en effet, c'est l'usage de faire tuer le malheureux ou la malheureuse que des orgies ininterrompues ont convaincu de sa souveraineté.
+
+La fête fut en ville plus sensationnelle que jamais. On se hâtait de s'amuser. Et, sur l'ordre de Balthazar, chaque soir les filles nues, parmi les plus belles, allaient se promener sur les remparts, chantant et dansant, de façon à exciter la convoitise impuissante des soldats de Cyrus, privés de confort, de vivres et surtout d'amour depuis bien longtemps : ils avaient même ordre de ménager leurs munitions, et c'est en cachette qu'ils devaient décocher leurs flèches aux créatures impudiques qui, du haut des remparts, leur adressaient des gestes obscènes.
+
+Vietrix vivait beaucoup chez lui. Il avait, à deux ou trois reprises, essayé de vaincre la résistance d'Anouké, mais sans succès. Par amour-propre, il ne voulait pas cependant la prendre de force. Il y perdrait son nom ou finirait bien par l'avoir de gré !
+
+Cependant il avait décidé de se rendre au grand sacrifice du temple de Bel et au grand festin que Balthazar devait donner le dernier jour de la fête de Sacaca, festin auquel Meretçar l'avait fait inviter.
+
+---
+
+Le temple de Bel, le dieu tout-puissant, émanation d'Anon, Bel, le dieu-soleil qui donne la vie, Bel, symbole de la génération, Bel, le dieu mâle, se trouvait au centre de Babylone. Vietrix l'avait visité dès son arrivée dans la capitale.
+
+Les tours s'élevaient au centre de la vaste enceinte fermée par les portes d'airain. En bas, sur chaque front carré, on n'eût pas compté moins de quatre cents pas. Les sept étages superposés et le sommet se dressaient dans les airs à une prodigieuse hauteur. En haut, dans la sérénité de l'air, sur la plate-forme qui dominait au loin les plaines de l'Euphrate et où l'on aboutissait par un escalier en spirales, une petite chapelle se dressait. A l'intérieur de cette chapelle se trouvaient une table d'or et un lit.
+
+---
+
+Là la femme promise à Bel, quelle qu'elle fût, devait passer la nuit. A certains temps, ce service fut dévolu aux prêtresses. Elles attendaient dans la prière, étendues nues, en posture d'amour, auprès de la table de sacrifice, que le dieu voulût bien se présenter. Il était interdit en ces lieux d'allumer la moindre lumière, et la femme devait se soumettre aux caresses sacrées sans chercher à pénétrer les traits du divin amant qui honorait ainsi sa couche. Quand il était parti seulement, elle se levait, faisait ses ablutions, puis, devant le grand ciel merveilleusement constellé d'étoiles, elle remerciait à genoux le dieu générateur qui avait daigné accomplir sur elle l'Acte de la vie.
+
+C'étaient, à la vérité, les prêtres --- et nul ne l'ignorait --- qui, délégués de Bel, pénétraient chaque nuit dans la petite chapelle. Les contempteurs de l'ordre public ne manquèrent point même à diverses reprises de les accuser d'avoir abusé de la situation. Ils firent entendre de vives critiques quand le grand prêtre de Bel demanda le remplacement au sommet du temple des femmes hiérodules par des femmes mariées de la ville d'un physique le plus appétissant possible. Dhi-Sor, qui faisait en ces temps profession d'athéisme, avait même rédigé à cette occasion un pamphlet qui n'avait pas manqué de faire quelque bruit : Parbleu ! ces messieurs préféraient les corps tout neufs des jeunes dames mariées à ceux, un peu usagés, des professionnelles de l'amour.
+
+---
+
+Mais c'était dans la grande salle, située au premier étage, que la cérémonie devait avoir lieu.
+
+Cette salle, haute et vaste, était de tous côtés lamée d'or, incrustée d'émaux et de pierres. Sous une voûte, dans la pénombre, la statue magnifique de Bel se dressait. Le dieu à la physionomie hautaine et grave était coiffé de la grande tiare, mais sur les côtés une double paire de cornes de taureaux se dressait. La statue était d'or pur incrustée de pierres précieuses, sardoine, onyx, émeraudes, hyacinthes aux jets rutilants. Elle atteignait à de gigantesques proportions, quoique arrêtée à mi-corps. D'une main, Bel tenait le grand sceptre de justice ; l'autre était libre. C'était celle-là que depuis les temps les plus reculés, dès l'origine des dynasties millénaires, tous les rois de Babylone devaient toucher au moment de leur couronnement. Ainsi ils recevaient de Bel lui-même le pouvoir suprême.
+
+---
+
+Au-dessus du dieu, les trois signes essentiels étaient représentés, dessinés d'or et de pierres : le croissant lunaire qui est Sin, le disque radieux du soleil qui est Samas et l'étoile qui est Istar.
+
+A côté de la statue de Bel il y avait une table d'or. Sur cette table étaient seulement sacrifiés les animaux encore à la mamelle, c'est-à-dire parfaitement purs. A l'autre extrémité de l'enceinte, sur une table plus grande, proche le parvis, avaient lieu les sacrifices de taureaux, génisses, boucs.
+
+Mais devant la statue elle-même une grande ouverture était pratiquée. C'était un véritable gouffre qui s'ouvrait entre les bras du dieu, gouffre au fond duquel se trouvait un bûcher tel qu'il anéantissait en quelques instants les victimes offertes à l'expiation.
+
+D'autres statues de dieux, tous les dieux secondaires babyloniens, se dressaient encore dans cette grande enceinte. Il y avait aussi aux murs de nombreux ex-voto, soleils d'or, images phalliques. Vietrix y remarqua même certaines croix qui n'étaient pas sans analogie avec la croix gammée.
+
+---
+
+Cependant la foule immense remplissait déjà le temple. Les prêtres des diverses catégories, égorgeurs ou libateurs, étaient à leur poste. Les prêtres pyrophores répartis partout à travers la salle, tenaient à la main de grands flambleaux qui jetaient de puissants reflets sur les statues d'or massif. Les hiérodules avaient été partagés, hommes, femmes, eunuques ou enfants, auprès de leurs divinités protectrices. Pour une si exceptionnelle cérémonie, les servantes d'Istar étaient toutes venues au temple de Bel.
+
+[Pl. 13. --- Suzanne et les Vieillards. _J.-B. de Troy inv._ _L. Cars sc._]()
+
+Le grand prêtre, qui avait coiffé la tiare d'or, reçut sur le parvis Balthazar et la reine. L'un et l'autre avaient le front ceint de grands bandeaux de joaillerie et le large manteau à franges d'or sur les épaules. Le roi prit place sur un fauteuil peu élevé et la reine devant lui, sur un tabouret.
+
+---
+
+Alors les sacrifices habituels d'animaux commencèrent. Le recueillement était général. Une musique de harpe se faisait entendre. Plusieurs grands taureaux, les génisses, les boucs furent égorgés et jetés en offrandes dans le brasier.
+
+« Bel ! fondateur, seigneur du monde, roi des esprits ! » disait en litanie la foule.
+
+Mais le grand prêtre examinait les entrailles des victimes et il n'était pas satisfait.
+
+La guerre, la faim, la maladie étaient sur Babylone. Ce n'étaient point avec de tels sacrifices que l'on apaiserait le courroux de Bel. Il fallait que fût accompli le grand rite de mort. C'étaient de plus méritoires sacrifices, c'étaient les sacrifices humains que Bel réclamait.
+
+---
+
+Le grand prêtre fit un signe. Et des hommes furent amenés nus et enchaînés. C'étaient des étrangers prisonniers, plusieurs, notamment, de cette race des Perses qui assiégeaient la ville. Ils furent étendus un à un sur la table de sacrifice. Un long frémissement passa sur les assistants. Les prêtres égorgeurs levèrent leur couteau. On entendit quelques gémissements bientôt couverts :
+
+« Bel ! fondateur, seigneur du monde, roi des esprits ! » suppliait la foule agenouillée ... »
+
+L'un des sacrifiés s'était révolté cependant. C'était un grand gaillard à barbe.
+
+--- Un Phénicien ! dit quelqu'un près de Vietrix.
+
+Le Gaulois eut une surprise. Il connaissait la physionomie de cet homme. Parbleu ! c'était son ex-ennemi Canabal. Par quel hasard ? Il conta à voix basse l'aventure à Mat-Shan qui se tenait près de lui.
+
+--- Cela ne m'étonne point qu'il regimbe devant une exécution si utile à la communauté, fit le philosophe. Ces gens de mer sont tous des païens !
+
+--- Voilà toujours une question réglée ! se dit Vietrix. Les dieux se sont chargés de ma vengeance.
+
+Cependant le grand prêtre examinait les entrailles des guerriers. Mais son front était toujours chargé de plisl. Il s'approcha du roi et ils échangèrent quelques mots.
+
+---
+
+On fit alors venir des femmes, des esclaves étrangères. Elles avaient été offertes aux prêtres par les particuliers. Il y en avait même du harem du roi. Elles étaient belles, quoique âgées pour la plupart. Les donateurs, évidemment, avaient fait leur choix.
+
+Elles furent étendues nues, les seins en l'air, le ventre bombant, attachées par des chaînes d'or qui aboutissaient aux cornes de taureau de Bel. Tandis que les aides les maintenaient, le grand prêtre leur ouvrit les entrailles, les étala, et les examina vivantes. Puis toutes à la fois furent précipitées dans le bûcher, suspendues aux chaînes. Éventrées, plusieurs vivaient encore, et on entendi quelques instants des hurlements sinistres monter du fond du gouffre.
+
+---
+
+Le grand prêtre cependant était toujours soucieux. Il se concerta avec le grand conseiller des Mages, un vieillard âgé de plus de deux cents ans. Puis il prononça quelques paroles qui se perdirent dans le bruit.
+
+--- Que se passe-t-il ? demanda Vietrix à Mat-Shan.
+
+--- Il se passe ceci, que les mages réclament des victimes babyloniennes pour le grand exorcisme et la grande expiation. Bel devrait être satisfait. Si les présages demeurent toujours mauvais, c'est que l'action de tous les démons malfaisants coalisés est prépondérante sur celle de Bel lui-même. Il faut extirper le mal de quelques individus, pris pour émissaires de tous. On va égorger un certain nombre de nos compatriotes.
+
+Un silence lourd se fit sur l'assemblée.
+
+A cet instant, Dhi-Sor poussa Mat-Shan du coude.
+
+--- Si je lisais un de mes _ekos_ qui sont de nature à donner le mépris de la mort et à élever le cœur des Babyloniens pusillanimes ?
+
+Dhi-Sor depuis des mois avait pâli à faire les _ekos_ que Mat-Shan lui avait si chaleureusement recommandés. Il en avait composé de magnifiques ; par malheur, l'occasion lui avait toujours manqué de les faire connaître à Balthazar ou aux grands qui l'en eussent récompensé. Recommandé par Meretçar, il tombait toujours au palais au mauvais moment, quand Balthazar s'éveillait d'un mauvais rêve ou venait, par sadisme, de faire égorger un de ses favoris ou favorites. L'infortuné Dhi-Sor ne pouvait pas placer ses _ekos_.
+
+Il crut à cet instant, où la vertu avait besoin d'être exaltée, que son concours serait apprécié.
+
+--- Tais-toi donc, imbécile ! lui répondit brutalement Mat-Shan. Le grand prêtre fait son choix. Si tu attires l'attention sur toi, tu vas te faire égorger !
+
+Dhi-Sor, avec un soupir, mit sa brique dans sa poche.
+
+--- Pour moi, étranger, je suis maintenant tranquille, se dit Vietrix.
+
+Ils furent bientôt tous rassurés. C'étaient des vierges, en effet, que Bel réclamait.
+
+--- Je ne le suis point, déclara Dhi-Sor.
+
+--- Ni moi, fit Poladamastor.
+
+--- Et moi moins encore, appuya Mat-Shan.
+
+Le grand prêtre, passant dans l'assistance, avait choisi trois garçons et quatre fillettes, appartenant à des classes différentes de la société, mais de familles connues. Les parents, du reste, y acquiescèrent tout de suite. L'honneur du sacrifice rejaillirait sur toute la maison.
+
+---
+
+Les garçons, agenouillés devant Bel, gardaient pour l'instant leurs tuniques, mais les filles, mises à nu, furent étendues sur la table de sacrifice. La plaque d'or avait été nettoyée, purifiée, et tendue d'une nappe de lin d'une blancheur éblouissante.
+
+--- Ceux du sexe mâle, dès l'enfance, ont été circoncis au temple, expliqua Mat-Shan à Vietrix. Le ligament fut offert religieusement à la divinité. Il est dans le rite que la membrane des filles soit de même brisée aujourd'hui.
+
+Le grand prêtre prit un ciseau d'or qui avait été exposé au feu du bûcher. Les torches s'étaient concentrées autour de lui. Les hiérodules écartèrent les jambes de chacune des fillettes à tour de rôle et le prêtre de son ciseau déchira leurs membranes qui étaient bien intactes. Le sang des vierges coula alors sur l'autel.
+
+Le grand prêtre s'inclina devant Bel, offrant les prémices des jeunes Babyloniennes.
+
+« Bel ! fondateur, seigneur du monde ! roi des esprits ! » répétait la foule, plus recueillie et comme emplie de crainte maintenant.
+
+[]()
+
+# Chapitre 23.
+
+## La Grande Incantation et l'Orgie Sacrée.
+
+Voix d'outre-tombe. --- La conjuration du sort. --- Le sacrifice par couples. --- Dans le gouffre de feu. --- Les hiérodules en folie. --- Dans l'ivresse, l'amour et le sang.
+
+Vietrix se sentait lui-même inquiet, troublé. La plupart des flambeaux avaient été éteints et cachés derrière les colonnes. L'ombre régnait dans la salle. Balthazar, qui avait suivi toute la cérémonie, impassible, s'était agenouillé. On n'entendait plus aucune voix, aucun bruit.
+
+--- C'est la grande incantation d'exorcisme qui va commencer, glissa en un souffle Mat-Shan à l'oreille de Vietrix.
+
 ...

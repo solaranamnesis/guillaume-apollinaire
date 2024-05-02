@@ -2563,4 +2563,242 @@ Vietrix se sentait lui-même inquiet, troublé. La plupart des flambeaux avaient
 
 --- C'est la grande incantation d'exorcisme qui va commencer, glissa en un souffle Mat-Shan à l'oreille de Vietrix.
 
+Une voix, en effet, venait de s'élever, voix lointaine et blanche. D'où sortait-elle ? Du fond de la salle, de derrière la statue du dieu, du sommet de la voûte, du fond du gouffre ? On ne pouvait s'en rendre compte. Vietrix sentit à cet accent singulier, hors la réalité, hors la vie, un frisson singulier lui courir sur la nuque ... Oui, c'était bien une voix d'outre-tombe, une voix des ténèbres qui poursuivait sa triste mélopée, sur un mode chantant, avec des arrêts brusques.
+
+L'incantation était divisée en couplets, et la foule en chœur reprenait, grave et suppliante, la double invocation finale aux puissances infernales. La plupart des assistants se tenaient maintenant le front contre terre.
+
+« Le Dieu mauvais, mauvais en son principe, »
+
+« Le démon du désert, le démon de la montagne, »
+
+« Le démon de la mer, le démon des marais, »
+
+« Le génie mauvais, l'uruku pernicieux, »
+
+« Le vent mauvais, »
+
+« Et le démon qui saisit le corps. »
+
+« Et qui agite le corps, »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+--- Esprit du ciel, souviens-t'en ! Esprit de la terre, souviens-t'en ! répétèrent les assistants.
+
+« La fièvre douloureuse, la fièvre violente, »
+
+« La fièvre qui n'abandonne jamais l'homme, »
+
+« La fièvre maligne, »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+« Celui qui forge les nuages, »
+
+« Celui qui donne l'enchantement, »
+
+« La face malfaisante, »
+
+« L'œil malfaisant, »
+
+« La bouche malfaisante, »
+
+« La langue malfaisante, »
+
+« La lèvre malfaisante, »
+
+« La parole malfaisante, »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+« La peste douloureuse, la peste violente, »
+
+« La peste qui ne s'en va pas, »
+
+« La peste maligne, »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+« La langueur du poison versé dans la bouche, »
+
+« L'aliment qui réduit le corps en squelette, »
+
+« Le vent pestilentiel qui souffle du désert, »
+
+« Esprit du ciel souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+« Celui qui meurt de faim dans les fers, »
+
+« Celui qui meurt de soif dans les fers, »
+
+« Celui qui a faim au fond de la fosse, »
+
+« Celui qui suppliant en est réduit à manger la poussière, »
+
+« La femme esclave que son maître n'a pas possédée, »
+
+« La femme libre qui n'a pas de mari, »
+
+« Celui qui laisse sur son nom une mémoire infâme, »
+
+« Celui qui ne laisse pas de mémoire sur son nom, »
+
+« Celui qui tombe malade au début du mois incomplet, »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+« La prostituée sacrée au cœur impur qui abandonne le lieu de prostitution, »
+
+« La prostituée du dieu Anon qui ne fait pas son service. »
+
+« Au soir du premier jour du mois incomplet, »
+
+« Le hiérodule qui fautivement ne va pas à son lieu, »
+
+« Qui ne taillade point sa poitrine, »
+
+« Le hiérodule qui use de sa main, »
+
+« Fraudant l'acte d'amour, »
+
+« Jusqu'à ce que se brise son tympan ! »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+Les hiérodules gémirent aux quatre coins de la salle. Il y eut un temps d'arrêt. Les prêtres s'étaient approchés des trois garçons et ils leur faisaient enlever leurs robes et leur versaient un philtre magique, préparé selon le secret des serviteurs de la puissance souterraine.
+
+--- C'est surtout un aphrodisiaque, expliqua Mat-Shan penché à l'oreille de Vietrix.
+
+--- Que se va-t-il passer ? pensa le Gaulois, peu rassuré.
+
+Il vit en même temps que la statue de Bel et ses attributs, notamment le grand phallus dressé à sa gauche, commençaient de rougir sous l'action du bûcher intérieur ...
+
+« Le fantôme enfant du ciel, »
+
+« Dont se souviennent les dieux, »
+
+« Le vampire qui s'attaque à l'homme, »
+
+« Que jamais ils ne les saisissent, »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+« Les eaux du Tigre, »
+
+« Les eaux de l'Euphrate, »
+
+« Le désert sans eau, »
+
+« La montagne des ténèbres, »
+
+« Qui s'élève à l'orient, »
+
+« El la montagne agitée, »
+
+« Qu'ils referment leurs gouffres. »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+Le grand prêtre fit alors éloigner les trois jeunes gens de la statue de Bel qui flamboyait, puis il les fit étendre à côté des trois vierges. La quatrième, la plus jeune, avait été mise à terre. Ils furent accouplés, un garçon avec une fille, et quand la position d'amour eut été étroitement prise entre eux avec l'aide des prêtres, ils furent ainsi liés par les chaînes d'or. On entendait maintenant monter aux quatre coins de la salle les sourds rugissements des hiérodules. Eux aussi avaient pris des breuvages. Mais il n'était point permis de songer aux offrandes profanes d'amour avant que le dieu ne fût satisfait, la déesse femelle Baaltis fécondée.
+
+« Le démon mauvais, le alal mauvais, le gigum mauvais, »
+
+« Le telal mauvais, le maskim mauvais, »
+
+« Le fantôme, le vampire, le spectre, »
+
+« Le sortilège mauvais, le philtre, »
+
+« Le poison qui coule, »
+
+« Et tout ce qui est douloureux, »
+
+« Et tout ce qui agit, »
+
+« L'incube et le succube, »
+
+« Mais non pas le servant, »
+
+« La tête contre sa tête, »
+
+« Le corps contre son corps, »
+
+« Le sexe dans son sexe, »
+
+« Les pieds contre ses pieds, »
+
+« Et jamais ils ne les saisiront, »
+
+« Et jamais ils ne reviendront. »
+
+« Esprit du ciel, souviens-t'en ! »
+
+« Esprit de la terre, souviens-t'en ! »
+
+Les corps des vierges enchaînés se convulsaient en de malhabiles spasmes sur la table du sacrifice. Et soudain, les prêtres saisirent la dernière fillette, et les chaînes d'or l'enlevèrent et Vietrix vit avec horreur qu'elle se trouvait transportée sur le phalle de cuivre rougi à blanc. Cela ne dura qu'un instant, car toutes les chaînes ensemble précipitèrent dans le gouffre de feu les sept enfants dont l'acte était accompli.
+
+« Baaltis est fécondée ! Baaltis est fécondée ! » criaient les hiérodules.
+
+---
+
+L'incantation était terminée, les génies mauvais devaient être écartés, Bel satisfait.
+
+Une brusque détente se produisit. Les hiérodules, femmes et jeunes garçons, avaient rejeté leurs voiles et se mêlaient à la foule. Déjà, selon le rite, ils offraient leurs corps, déjà des chairs s'accouplaient, les sexes se confondaient. Une véritable poussée de rut, après tant de sacrifices humains, avait saisi les fidèles.
+
+« Gloire à Lilith ! Gloire à Lilith ! »
+
+C'était le nom de la déesse Istar-Mylitta quand elle ne veut pas que l'amour soit fécond. Lilith, la déesse tueuse d'enfant, c'était l'appel à l'orgie sacrée.
+
+Les femmes hiérodules poussaient des cris d'allégresse qui allaient jusqu'aux hurlements. Nues et enguirlandées, elles parcouraient la foule en dansant. Les unes tenaient des tambourins, les autres des instruments en forme de phallus. Certaines d'entre elles, possédées par deux ou trois hommes en un instant, entrèrent en transes. L'une d'elles, la plus belle, prétresse favorite d'Istar, fut s'offrir à Balthazar, qui la prit sous les yeux de la reine. Ensuite, saccadée, le regard fixe, semblable à une automate, elle traversa la foule et fut se précipiter dans le bûcher ardent qui brûlait toujours devant Bel. Balthazar se retira à cet instant.
+
+Vietrix et Mat-Shan s'étaient mis à l'abri, grâce à leur ami le mage, qui les avait installés, Vietrix sur les épaules du dieu de la guerre, Mat-Shan au sommet d'un des plus majestueux phallus d'or de la salle. Du haut de leurs observatoires voisins, ils pouvaient, sans danger d'être violés ou de recevoir des coups de verge, observer la bagarre.
+
+Cela dura deux bonnes heures. Hommes et femmes se trémoussaient, envahis par les esprits de Bel et d'Istar. Les hiérodules se tailladaient à coups de couteau, de grands diables, armés de verges avec crocs de fer, frappaient à coups redoublés sur la foule nue, accélérant le rythme de l'orgie sacrée. Des outres de vin mêlé d'aphrodisiaques avaient été apportées. La musique était devenue frénétique. Des parfums singuliers d'encens âcres se mêlaient à l'odeur de la chair humaine grillée.
+
+Le délire atteignit à son comble. Des hommes venaient de se mutiler volontairement et ils jetaient les précieux attributs virils dans le gouffre de Bel. Des femmes se précipitèrent sur eux et, pareilles à des furies, commirent un monstrueux simulacre d'amour sur les volontaires eunuques. La foule, tournoyante et enlacée, sombrait dans le sang et la folie.
+
+---
+
+Mais soudain le jour parut. Un clair rayon de soleil perça la haute voûte du temple. Alors, comme par enchantement, l'orgie s'arrêta. Hommes et femmes se voilèrent la tête et, un à un, sortirent du temple. Quelques blessés et cadavres demeuraient seuls sur le carreau. Quand tout le monde fut sorti, les prêtres et leurs aides remirent un peu d'ordre et, sans plus de cérémonie, jetèrent tout ce qui traînait dans la fournaise encore incandescente.
+
+Vietrix et Mat-Shan sortirent ensemble.
+
+--- Si Bel n'est pas apaisé, dit le jeune Gaulois, c'est vraiment qu'il est difficile.
+
+--- Le grand prêtre a voulu sauver la face, dit-il. Mais je ne crois point qu'il soit satisfait. Les sacrifices ont été absolument inutiles. Ça va mal ! Ça va bien mal !
+
+[]()
+
+[Pl. 14. --- Suzanne surprise au Bain par les Vieillards. _Ant. Coypel inv. et sc._]()
+
+[]()
+
+# Chapitre 24.
+
+## Le Festin de Balthazar.
+
+L'orgie dans les rues. --- Les préparatifs du festin. --- La toilette des femmes. --- Défilé des grands. --- Balthazar et sa favorite. --- Les services. --- Les vins. --- Coquetterie des femmes. --- Les stupéfiants et les excitants. --- Irritation des femmes. --- Les vases sacrés. --- Hallucination de Balthazar. --- « Mané, Thecel, Pharès. » --- Interprétation du Mage. --- L'apparition de la reine. --- A la recherche de Daniel. --- La croix gammée. --- L'explication de Daniel. --- La grande ivresse. --- Les prostituées et les gitons. --- Les portes s'écroulent. --- Apparition de l'armée de Cyrus.
+
+Au dernier jour de la fête de Sacca, l'orgie atteignit à son comble dans tout Babylone. Des foules en délire parcouraient les rues. Sur l'ordre de Balthazar, les grands négociants en vins avaient dû ouvrir leurs caves à tous. Maîtres et esclaves, confondus, s'efforçaient d'oublier que les présages étaient mauvais et que l'œuvre de Cyrus faisait d'inquiétants progrès.
+
+Vietrix lui-même avait perdu de son assurance. Cette orgie déplaisait à son caractère de Gaulois équilibré. Il prenait du mépris pour ces pauvres Asiatiques, ces satrapes qui tombaient perpétuellement d'un excès dans l'autre, incapables de garder le pouvoir, cruels à la guerre, efféminés dans la paix.
+
 ...

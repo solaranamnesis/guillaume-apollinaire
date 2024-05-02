@@ -3025,4 +3025,58 @@ La reine s'était à nouveau couvert le front de son voile violet. Elle remonta 
 
 Des messagers furent immédiatement expédiés au quartier juif. Ils avaient ordre de ramener le prophète de gré ou de force.
 
+Les conversations reprirent. Le roi était inquiet. Appuyé sur les coussins, le pied posé sur le corps de sa servante morte, il réfléchissait et, de temps à autre, un rire nerveux se dessinait au coin de ses lèvres.
+
+--- Si cette inscription fut vraiment tracée par une main isolée, ce dont je continue à douter quant à moi, fit Mat-Shan, c'est évidemment que son sens est grave. L'interprétation du mage est visiblement de fantaisie. Avez-vous entendu ce que disait tout à l'heure le grand échanson : les Perses entreraient bel et bien en ville ! Les portes d'airain sont fermées ici par de lourdes masses de fer, mais quant à moi, je m'apprête à filer par derrière, par la porte de service, je ne vous le cache pas.
+
+--- Il y a, en effet, fit Poladamastor, le fâcheux précédent du roi de Ninive, Sardanapale, grillé en son palais avec toute sa cour ... En pareille occurrence, il est plus prudent d'être dehors. Si le prophète n'arrive pas d'ici un moment, je vous suis.
+
+Cependant Vietrix poursuivait avec les lettrés du pays des Aryas et du pays de Shina une conversation qui paraissait vivement l'intéresser.
+
+--- Tout est symbole, disait l'Arya. Les mots tracés sur ce mur sont symbole et la signification directe n'a aucune importance. C'est pourquoi j'estime, moi aussi, que le mage s'est trompé. Il faut chercher plus loin.
+
+--- Peut-être même à côté, fit le petit homme jaune.
+
+--- Ah ! combien est plus agréable à interpréter la science des signes purs. Toutes les grandes traditions de nos antiques religions, nous les avons, nous, résumées en des représentations graphiques des plus simples. Ainsi de la croix gammée.
+
+--- La croix gammée ! vous connaissez le sens de la croix gammée ? dit Vietrix en proie à une vraie exaltation.
+
+--- Ils sont plusieurs symboles qui représentent exactement la même chose. La croix gammée, avec ses deux ailes qui semblent tourner, mais c'est le mouvement même, ne l'avez-vous pas compris ? Quoi de plus simple ? C'est le tout et l'unité. C'est le tout, car chaque parcelle de matière vibre ici-bas sous l'action de la masse solaire, elle-même à l'état de vibration. C'est la divinité et l'harmonie de l'univers. Nos philosophes ont dès longtemps senti ce mouvement vibratoire universel. Et je pense, quant à moi, que des calculs précis, quand ces sciences exactes auxquelles on s'attache maintenant en Grèce et chez vous, monsieur du Cathaï, seront développées, établiront un jour la nature et les lois de ce mouvement vibratoire.
+
+« La vibration vient de la vibration. La croix gammée, c'est encore l'unité, le mouvement premier, le moteur initial, le geste d'Anou, de Vichnou, de ceux dont il est défendu de prononcer le nom. Oui, le mouvement est dieu puisque l'arrêt du mouvement c'est la mort de tout, de Dieu lui-même. »
+
+--- Mais vous me dites qu'il y a plusieurs signes ?
+
+--- Chez nous, fit l'homme du Cathaï, la croix a été légèrement incurvée. Nous avons l'esprit courbe.
+
+--- Chez d'autres, reprit l'Arya, elle a été entourée d'un rond. Ce signe est si vieux que je suppose qu'il se doit retrouver chez les peuplades les plus reculées de notre monde. Chez d'autres, pour mieux indiquer le mouvement, il est représenté par trois jambes qui tournent dans le même sens autour d'un cercle.
+
+--- Comment ! fit Vietrix. Le signe des trois jambes est identique à celui de la croix gammée !
+
+--- Il s'applique principalement à la transmission de la vie humaine, la continuation de la race. C'est pourquoi, jadis, il était d'usage de tatouer sur le bas-ventre des filles, là où se prépare l'œuvre de chair, le signe protecteur. Les familles princières, celles qui avaient compté des héros, s'en assurèrent peu à peu le monopole par les prêtres. Au temps où la femme marquait d'abord la lignée des fils, il était tout naturel que le ventre des filles fût aussi placé sous la protection des signes sacrés. Celles-là étaient considérées comme prédestinées. Et bien heureux ceux qui pouvaient devenir leurs époux !
+
+Une lumière soudaine venait de se faire en l'esprit de Vietrix. Parbleu ! Il comprenait. La fille qui lui était promise, mais c'était son esclave même, née sous le signe de la croix gammée ! Tout lui apparaissait maintenant certain, logique.
+
+Et les Perses entraient en ville ! Une heure avant, Vietrix ne s'en fût pas soucié. Il tenait, certes, à sa petite esclave. Mais dans sa vie d'aventure, quel cas faire d'une vie ? Maintenant, tout était changé. Il devait rentrer chez lui en hâte afin de protéger, le cas échéant, celle qui devait être sa femme. Ah ! il se félicitait malgré tout d'être venu à ce banquet. Et il ne se souciait plus de l'énigme de Balthazar, puisque la sienne était résolue.
+
+--- Je pars avec vous, dit-il à Mat-Shan.
+
+--- Un instant, répondit celui-ci, voici Daniel, dès qu'il aura parlé, nous nous éclipsons.
+
+---
+
+Le vieillard, en effet, était entré dans la salle et il se tenait debout devant Balthazar.
+
+« Es-tu ce Daniel, lui dit-il, l'un des captifs de Juda que Nabuchodonosor, mon glorieux ancêtre, avait ramené ? »
+
+--- Je suis ce Daniel, répondit le prophète.
+
+--- J'ai appris que l'on trouve en toi la sagesse, l'intelligence et la divination, en un mot l'esprit des dieux. Nul mage de Chaldée ne saurait me donner l'explication de l'inscription qu'une main mystérieuse a tout à l'heure tracée devant moi sur cette toile :
+
+MANE THECEL PHARES
+
+Si tu peux m'en révéler le vrai sens, tu seras revêtu de la pourpre que j'ai fait enlever des épaules de mon mage imposteur, tu porteras un collier d'or à ton cou et tu auras la troisième place dans le gouvernement du royaume.
+
+Daniel regarda l'inscription. Une clarté divine parut soudain animer le visage du vieillard et d'une voix forte que tous entendirent, il parla :
+
 ...

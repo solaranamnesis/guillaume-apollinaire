@@ -3079,4 +3079,82 @@ Si tu peux m'en révéler le vrai sens, tu seras revêtu de la pourpre que j'ai 
 
 Daniel regarda l'inscription. Une clarté divine parut soudain animer le visage du vieillard et d'une voix forte que tous entendirent, il parla :
 
+« Garde tes dons et accorde à un autre tes présents. Je te donnerai néanmoins l'explication de la sentence. »
+
+« O roi, le Roi suprême avait donné à Nabuchodonosor l'empire, la grandeur, la gloire et la magnificence : tous les peuples, toutes les nations, les hommes de toutes langues étaient dans la crainte et tremblaient devant lui. Il faisait mourir ceux qu'il voulait et il laissait la vie à ceux qu'il voulait ; il élevait ceux qu'il voulait et il abaissait ceux qu'il voulait. Mais lorsque son cœur s'éleva et que son esprit s'endurcit jusqu'à l'arrogance, il fut précipité de son trône royal et dépouillé de sa gloire ; il fut chassé du milieu des entants, des hommes, son cœur devint semblable à celui des bêtes et sa demeure fut avec les ânes sauvages : on lui donna, comme aux bœufs, de l'herbe à manger et son corps fut trempé de la rosée du ciel, jusqu'à ce qu'il reconnût que le Dieu suprême domine sur le règne des hommes et qu'il le donne à qui lui plaît. »
+
+« Toi, Balthazar, son fils, tu n'as pas humilié ton cœur, quoique tu connusses toutes ces choses. Tu t'es élevé contre le Seigneur des cieux : les vases de sa maison ont été apportés devant toi et vous vous en êtes servis pour boire du vin, toi et tes grands, vos femmes et vos concubines. »
+
+« Ainsi tu as glorifié les dieux d'argent, d'or, d'airain, de fer, de bois et de pierre, qui ne voient point, qui n'entendent point et qui ne savent rien, et tu as insulté le Dieu qui a dans sa main ton souffle et qui dirige tes voies. »
+
+« C'est pourquoi il a envoyé une main qui a tracé cette écriture : »
+
+MANE THECEL PHARES
+
+« Et ces mots en leur sens caché signifient que le compte a été fait, mais après la pesée la division des biens a été ordonnée. »
+
+--- Mais encore, dit Balthazar qui s'élait levé hagard, un de ses poings fermé, tenant de l'autre la coupe sacrée du Temple de Jérusalem, la coupe du Saint des Saints emplie à nouveau de liquide impur.
+
+--- Cela signifie, ô roi, que Dieu a compté ton règne et qu'il y a mis fin, cela signifie que tu as été pesé dans la balance et que tu as été trouvé léger, cela signifie que ton royaume sera divisé sans plus tarder et donné aux Mèdes et aux Perses !
+
+---
+
+Un ricanement qui résonna sous toute la voûte du temple répondit au terrible avertissement que Daniel avait lancé d'une voix sûre. Le roi vida d'un trait la coupe sainte et sarcastique, il la jeta aux pieds du prophète.
+
+--- En attendant, fit-il, je te nomme le troisième personnage de mon royaume. Que l'on apporte la pourpre et le collier d'or ! C'est aujourd'hui --- et son ton devint un instant féroce, --- le dernier jour de la fête des Sacca. Ne l'oublions pas. Sous ton haut ministère et le mien, Babylone aura péri. Eh bien ! que le sort soit accompli ! Pourquoi ces mines consternées, messieurs ? Buvons, buvons encore ! Vos femmes réclament vos caresses ... Non ! Cela ne vous dit rien, eh bien ! faites entrer ici les prostituées qui sauront réveiller vos sens endormis et les gitons moins fatigués que nous. Esclaves ! que l'on apporte des roses fraîches, du vin, et que les portes de mon harem soient ouvertes toutes grandes ! »
+
+---
+
+Brisé par cet effort, le roi était retombé sur son divan, les yeux demi-clos. Ses paroles n'avaient point éveillé la gaieté. Tous sentaient que le prophète Daniel n'avait point parlé à la légère ...
+
+--- Je parierais, dit Mat-Shan, que ce Juif avait des renseignements particuliers. A son assurance ...
+
+--- Parbleu ! dit Poladamastor, il dut traverser toute la ville. Les Perses ont fait une trouée, c'est certain. Peut-être les a-t-il rencontrés, sans doute à cette heure marchent-ils contre le palais. Dès que le harem royal sera arrivé ici, on va fermer toutes les portes et peut-être mettre le feu. C'est le coup de Sardanapale. Partons.
+
+Vietrix, Mat-Shan et Poladamastor sortirent donc par la porte de service. Les filles du harem nues et les gitons entrèrent à cet instant, et leur départ ne fut pas remarqué. Quant à Dhi-Sor, il voulut demeurer à toute force. Il estimait que c'était le moment ou jamais, quand les guerriers ennemis allaient arriver, d'enflammer les cœurs au combat.
+
+---
+
+Cependant le contact ne se faisait pas. Les esclaves royales avaient jugé de suite de l'état d'ivresse absolu des hommes et ne se sentaient nullement le cœur d'entreprendre des mâles en si piteux état. Et cependant elles aussi, auxquelles le roi faisait si rarement hommage d'amour, eussent volontiers profité de cette aubaine de liberté. Elles se groupèrent auprès des autres femmes. Et maintenant, l'oreille tendue vers la grande porte, elles semblaient les unes et les autres écouter, attendre quelque mystérieuse intervention ...
+
+Balthazar s'était paresseusement soulevé de sa couche et soutenu par les gitons qui s'étaient empressés il prononça péniblement ces paroles :
+
+--- Eh bien ! Haut les cœurs ! messieurs ? N'aije point ordonné que se confondent les sexes ? Les portes ne sont-elles point fermées encore ? Mais quels sont ces coups sourds qui résonnent ?
+
+On entendait, en effet, depuis un moment des chocs violents qui faisaient trembler les murs.
+
+--- Quels sont ces coups ? dirent les hommes ivres, soulevant péniblement leurs paupières.
+
+Alors les femmes qui s'étaient rapprochées encore de la porte répondirent :
+
+--- Les esclaves barrent et murent les portes, selon tes ordres, ô Roi. Tout à l'heure nous offrirons nos caresses à tes guerriers.
+
+--- Mes guerriers ! gémissait Balthazar, ils s'endorment, mes vaillants guerriers ! Haut les cœurs ! Haut les cœurs !
+
+---
+
+Ce fut à ce moment que Dhi-Sor, escaladant les corps étendus, parvint à se rapprocher du roi.
+
+--- J'ai précisément composé, dit-il, un de ces poèmes dénommés _ekos_ destinés à relever le moral des guerriers. Permettez-moi, Majesté ...
+
+--- Certes, dit Balthazar. Le moment est venu. Lis ton _eko_, poète.
+
+Et il se versa une large rasade.
+
+Dhi-Sor, radieux, sortit la brique qu'il portait sous sa robe et d'une voix assurée commença :
+
+« Epître liminaire à la mémoire du grand Nabuchodonosor ... »
+
+Mais il ne put en dire plus long. Un choc formidable avait retenti, ébranlant le palais tout entier, et avec un bruit de tonnerre les deux grandes portes d'airain de la salle des fêtes venaient de s'écrouler !
+
+Les hommes, soudain dégrisés, se redressèrent, les yeux hagards ! Ils aperçurent d'abord la ruée des femmes nues vers la grande entrée. Mais les bras en avant, les seins tendus et les croupes mêlées, elles ne semblaient pas fuir, elles s'offraient avec de longues acclamations ... Ils regardèrent encore : dans l'encadrement de la porte, une troupe de soldats armés d'arcs et de lances, sales, la barbe inculte, de vraies faces de bêtes, troupe hurlante et désordonnée, venait de faire son apparition et derrière eux, sur la route du nord, des armées innombrables se pressaient, et devant eux, à cheval, entre les deux grands dragons ailés, debout sur ses étriers, son épée nue à la main, se tenait le roi Cyrus !
+
+---
+
+[]()
+
+# Epilogue.
+
+Fin de Babylone. --- Au quartier juif. --- Le retour à Lutèce.
+
 ...

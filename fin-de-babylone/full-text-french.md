@@ -2801,4 +2801,228 @@ Au dernier jour de la fête de Sacca, l'orgie atteignit à son comble dans tout 
 
 Vietrix lui-même avait perdu de son assurance. Cette orgie déplaisait à son caractère de Gaulois équilibré. Il prenait du mépris pour ces pauvres Asiatiques, ces satrapes qui tombaient perpétuellement d'un excès dans l'autre, incapables de garder le pouvoir, cruels à la guerre, efféminés dans la paix.
 
+--- Tu sais, Anouké, dit-il à la fillette avant de partir au banquet, que les esclaves sont aujourd'hui libres. C'est le rite de Sacca. Tu es deux fois à moi, puisque je t'ai achetée deux fois. Eh bien ! je t'affranchirai. Mais tout à l'heure, au retour du festin, je veux que tu sois non seulement mon égale, mais, comprends-tu ? ma maîtresse.
+
+La fillette hochait la tête, regardant Vietrix de son air rieur et mystérieux.
+
+--- Si cela me plaît, dit-elle enfin.
+
+--- En voilà assez ! dit Vietrix. Les Perses vont entrer en ville. Tu refuses de m'obéir. Je ne veux pas te battre, non plus te violenter. Cela n'est décidément pas dans mon tempérament. Mais je t'abandonne à ton sort. J'ai autre chose à faire que de m'occuper d'une petite esclave de ton espèce. Je te vendrai, ma fille ! je te vendrai à quelque autre Canabal. Et je m'en irai, moi, à la recherche de la femme à la croix gammée que le destin m'a réservèe !
+
+Anouké eut un long éclat de rire, puis elle s'as sombrit, et, comme il sortait, il parut à Vietrix qu'elle pleurait.
+
+---
+
+Les préparatifs du festin avaient été faits dans la grande salle du palais, dont l'entrée donnait sur la route du nord. Ainsi il était plus loisible aux invités de se rendre au banquet dans leurs magnifiques chars.
+
+Un luxe inouï avait été déployé pour cette fête, que Balthazar voulait belle entre toutes. Elle marquait sa réconciliation avec son peuple et aussi avec les dieux protecteurs de Babylone. Il en avait lui-même réglé l'ordonnance.
+
+Des tentures blanches, vertes et bleues avaient été attachées par des cordons de bysse et de pourpre à des anneaux d'argent et à des colonnes de marbre. Entre les colonnes, des étoffes blanches avaient été tendues. Le roi en avait ordonné ainsi afin de donner à la cérémonie un caractère de gravité que comportait l'état de siège. On avait donc réquisitionné un peu, partout, pour couvrir les immenses murailles, des draps dont quelques-uns, maniés plusieurs jours par les ouvriers, n'étaient plus de première blancheur. Cet appareil devait inciter les convives à garder quelque tenue. Aux repas d'orgie proprement dite, la salle était tendue de rouge.
+
+---
+
+Des nuées de serviteurs avaient travaillé à dresser les tables. Trois cents avaient été disposées, en bois d'érable incrusté de lamelles d'argent. Cinq à six cents lits et divans étaient répartis autour des tables et aux coins de la salle. Les ornements de ces lits étaient sévèrement réglés selon le rang hiérarchique de ceux qui y devaient prendre place. Les uns étaient à l'insigne d'or, les autres à l'insigne d'argent, marqués de porphyre, de marbre, de nacre ou de pierre noire. De grandes peaux de fauves avaient été étendues sur les divans.
+
+Mat-Shan, Dhi-Sor, Poladamastor et Vietrix étaient venus à l'avance reconnaître leurs places. Ils devaient arriver des premiers au banquet, puisque les entrées se faisaient dans l'ordre hiérarchique, les moindres convives s'installant d'abord, puis les grands du royaume, officiers et fonctionnaires, les ministres, le grand vizir, les princes et le roi lui-même. Il avait été décidé que chacun devait venir en la compagnie de sa femme légitime ou de quelques filles de harem parmi les mieux qualifiées.
+
+Les Babyloniens n'aimaient point à conduire à de tels banquets leurs épouses de premier rang. En dépit de leurs airs détachés, ils éprouvaient, à l'égard de celles-là, une certaine jalousie. D'autant que le décolleté, fixé exactement par une circulaire du grand maître des cérémonies, chef du protocole, serait des plus légers : les seins devaient être complètement à nu et les jambes découvertes jusqu'à mi-cuisse. Mais les tuniques de soie, peu transparentes, étaient autorisées. Ah ! ce jour-là, les matrones babyloniennes, les jeunes épousées et les favorites du harem passèrent de longues heures à se masser la poitrine, à se durcir les muscles des seins, à se peindre, d'un léger pinceau, les veines au bleu de ciel et les pointes à la pourpre éclatante, à se construire la coiffure et à se blanchir les jambes.
+
+---
+
+A la vérité, si les invités redoutaient les accès de coquetterie de leurs épouses, ils étaient rassurés sur les désirs de conquête des hommes. Légitimes et concubines, toutes les femmes dont Balthazar avait spécifié la présence au banquet étaient de celles qui, pendant les cinq jours de fête, s'étaient abstenues de sortir et étaient demeurées le plus paisiblement chez elles. Les hommes profitaient largement, au contraire, à ce moment, de l'orgie sacrée et populaire. Ils avaient à loisir les hiérodules hystériques, toutes les femmes mariées de la petite bourgeoisie et du peuple, ils pouvaient détourner sans difficulté les esclaves du voisin. Ces jours-là, tous les gens de l'aristocratie et les gens en place fermaient soigneusement à clef l'appartement de leurs femmes et s'en allaient s'amuser aux temples et fêtes publiques. Aussi étaient-ils à bout de forces, les reins brisés, la mine défaite, les yeux cernés, le cerveau imprécis, la moelle épinière absente et douloureuse.
+
+---
+
+Des centaines d'esclaves, rangés en bataillon, marchaient au fouet et au sifflet sous les ordres des grands officiers de bouche. Des amphores, de longs plats, des cratères d'or et d'argent furent disposés sur les tables.
+
+C'était une vieille idée asiatique que nulle manifestation votive n'est bonne en soi que si le rite extérieur est accompli. Si le Mage, lors de la grande incantation, se fût trompé dans l'énumération des esprits mauvais, le sacrifice perdait toute sa valeur. La lettre en pareille matière n'est pas moins importante que l'esprit. De même, à un tel repas, il fallait que les libations fussent faites dans les coupes spécialement destinées à cet usage. Une libation à l'hydromel faite par mille convives n'est valable que si les coupes ont été affectées à cet usage. Et son caractère est d'autant plus sérieux, le souhait prononcé avec les mots prescrits d'autant plus efficace que la coupe est de forme plus pure, d'époque plus ancienne et d'incrustations plus rares. Aussi les boissons sont-elles dégustées dans un ordre sévèrement étudié. La liberté ne règne que lorsque le dernier degré a été franchi.
+
+C'est ce que Poladamastor apprenait à Vietrix tandis qu'en compagnie de leurs deux amis, ils prenaient place non loin de la porte de service.
+
+--- Pour une foule de raisons, je préfère cette place à toute autre, déclara sentencieusement Mat-Shan à Poladamastor et Dhi-Sor qui paraissaient vexés de l'immédiat contact de la valetaille.
+
+A côté d'eux furent placés quelques lettrés étrangers qui se trouvaient à Babylone dans les mêmes conditions que Vietrix, notamment un voyageur du pays des Aryas du Sud et un autre des lointaines contrées de Cathaï. Ce dernier se distinguait par une politesse accomplie, mille gestes menus et cérémonieux qui parurent à l'affable Mat-Shan lui-même un peu exagérés.
+
+C'était aussi le coin des célibataires. Ceux-là qui sont habiles à jouer des mots préfèrent, en général, les femmes des autres à celles qui leur pourraient appartenir en propre. Ils n'ont point les moyens ni le tempérament d'entretenir un opulent harem. Ils estiment que les personnes du sexe bien nanties leur doivent naturellement l'offrande de leurs corps. La maîtresse de maison qui a l'heur de les posséder dans son salon est aussi bien tenue de leur montrer l'alcôve en tête à tête. Ainsi se payent les propos délicats de l'artiste et du poète. Les uns et les autres en avaient toujours jugé ainsi.
+
+---
+
+Cependant les grands avaient pris place. Les ministres, les hauts fonctionnaires, les généraux, quelques étrangers de marque, et le menu fretin des gens de cour et officiers d'état-major. Ils étaient accompagnés de grandes et belles femmes, le front ceint de pierreries, les peignes ornés de diamants aux cheveux. Ce n'étaient que femmes légitimes ou grandes favorites, toutes filles choisies pour la représentation et non de ces petites créatures chattes et gamines fabriquées seulement pour le plaisir d'amour. Vietrix aperçut la générale Dinosor suivie de son époux. Le directeur de l'enregistrement avait l'air légèrement affaissé, marchant à petits pas, l'œil terne et la bouche entr'ouverte.
+
+Vietrix salua profondément sa maîtresse. Elle se contenta de lui glisser à l'oreille :
+
+--- Au dessert, quand le général dormira, viens là-bas, derrière la sixième colonne, sur une peau de zèbre.
+
+« Mais ces dames n'ont pas l'intention de s'embêter, se dit Vietrix, qui se sentait assez peu en forme. Je crains fort de désenchanter la chaste Suzanne. »
+
+Les princes du sang s'installèrent ensuite. Meretçar se détacha du cortège et s'approcha un instant du groupe.
+
+--- Je ne sais ce qui se passe, leur dit-il, Cyrus a multiplié ses travaux sur le fleuve. L'eau de l'Euphrate baisse. Personne ne veut s'inquiéter, mais moi je ne suis pas tranquille. Méfions-nous !
+
+Et il s'éloigna.
+
+--- Cette fois, dit Dhi-Sor, je crois que je vais pouvoir placer un de mes _ekos_. Vous avez entendu le prince, messieurs, le combat est peut-être imminent. Dans cette salle où sont réunis tous les grands, tous les guerriers de Babylone, il convient que j'enflamme les esprits par un de mes _ekos_ !
+
+--- Le roi est de mauvaise humeur, paraît-il, fit Poladamastor. Je te conseille d'attendre que les vins aient dissipé tous soucis. Savez-vous ce que l'on vient de m'apprendre : La reine a refusé de paraître au banquet ! Elle demeure dans ses appartements. Tenez, voici, du reste, Balthazar qui fait son entrée.
+
+---
+
+Le roi était en costume de grand apparat, armé de pied en cap, ceint de la robe frangée d'or, la grande tiare sur le front. Il marchait avec majesté, mais sous ses traits raidis on lisait une singulière inquiétude ; sous le fard qui couvrait sa peau on devinait la pâleur de ses joues.
+
+Sa favorite du moment l'accompagnait, une petite Persane aux yeux noirs, au corps de volupté, dont les caresses savantes avaient su réveiller la chair lasse et flétrie du souverain. Elle avait réussi à contrebalancer au harem l'influence des gitons. Il y eut un imperceptible murmure dans l'assistance. La reine avait fait affront au roi par son absence, à tous les grands du royaume, mais pourquoi cette créature de rien, cette prostituée, cette fille de la race ennemie aux lieu et place de l'altière souveraine légitime ?
+
+Mais Balthazar n'eût pas toléré la moindre désapprobation. Il s'étendit sur la magnifique peau de lion qui lui avait été préparée, sa tête appuyée sur la tête gigantesque et terrible du fauve, et la favorite prit place devant lui, son corps demi-nu accroupi contre le corps du roi.
+
+---
+
+Les services étaient nombreux et abondants. Pendant trois heures, tandis que les conversations se poursuivaient, des plats défilèrent, portés et enlevés avec une admirable dextérité. Tous les fruits, tous les légumes, toutes les viandes que l'on avait pu se procurer dans Babylone assiégée défilèrent tour à tour. L'appétit était en général assez bon, du moins chez les hommes. Il n'est de tel que les excès d'amour pour creuser l'estomac. Sur la fin des services, après de nombreux volatiles et viandes en morceaux, Vietrix fut fort étonné de voir entrer une longue rangée d'esclaves portant à la file, six par six, une cinquantaine de plats d'argent sur lesquels étaient posés des bœufs rôtis tout entiers. Lui et ses amis dès cet instant capitulèrent et attendirent patiemment les sucreries et liqueurs du dessert.
+
+---
+
+Les vins de raisin, de palme, le nectar, l'hydromel avaient coulé à flots. Peu à peu le ton des conversations monta. Les libations se portaient de table à table, à l'exemple de celles de Balthazar, auprès duquel se tenait le chef du protocole qui en déterminait l'ordre. La tenue commençait à se relâcher. Les hommes discutèrent bruyamment, violemment sur les événements. Les généraux défendaient leur stratégie. Les politiciens se reprochaient leurs fautes diplomatiques qui avaient conduit Cyrus sous les murs de la ville. Mat-Shan et ses amis se faisaient expliquer par les lettrés étrangers quelques points de philosophie.
+
+Dhi-Sor tenait toujours à la main la brique sur laquelle avait été transcrit son plus bel _eko_. Mais dans ce vacarme assourdissant, comment se ferait-il entendre ? Il était mieux d'attendre quelque temps encore.
+
+---
+
+Quant aux femmes, elles semblaient inquiètes. Dès le début elles avaient fait assaut de coquetterie. C'était à qui ferait mieux ressortir, en bombant la poitrine, la fermeté de ses seins ou, en relevant sa robe, la ligne de ses jambes. Elles avaient espéré que le repas tournerait rapidement à l'orgie. La plupart avaient leurs amants dans la salle, d'autres comptaient en prendre de nouveaux ce jour. Elles avaient envie d'amour, depuis une semaine qu'elles en étaient sevrées ; du fond du harem elles avaient entendu les cris de liesse des foules en rut qui avaient parcouru la ville. Elles aspiraient elles aussi à l'amour sans contrainte, à l'amour en folie, à l'amour dangereux qui appelle le crime. Et puis elles savaient que le siège faisait des progrès, elles savaient que Cyrus, exaspéré, donnait son suprême effort. Si la mort était proche, il importait plus que jamais de jouir.
+
+Elles avaient excité, caressé les hommes par tous les moyens. Mais eux ne se souciaient nullement de débauches, au contraire. Ils en étaient lassés. Ils affectaient de ne point remarquer les avances lascives de leurs épouses, les œillades de leurs maîtresses. Ils demeuraient dans le domaine purement spéculatif, sombrant de plus en plus, du reste, dans les divagations bruyantes et subtiles de l'ivrognerie.
+
+---
+
+Balthazar, d'un geste las, avait donné un ordre. Le grand prêtre placé près de lui était sorti après quelques minutes de discussion. Le souverain avait dû lui signifier l'obéissance.
+
+Il revint, et derrière lui des esclaves portaient sur un plateau plusieurs coupes. Tout le monde les reconnut de suite ; c'étaient les coupes de sacrifice que jadis Nabuchodonosor avait enlevées du temple de Jérusalem. Cela fit une légère émotion. Les quelques Juifs qui assistaient au banquet ne cachaient point leur gêne. La chaste Suzanne avait pâli, avait cessé de regarder Vietrix et suivit, à cet instant, avec anxiété, ce qui se passait.
+
+--- Si détaché que je sois de la question religieuse, dit Mat-Shan, je ne suis point partisan de ce genre de sacrilèges.
+
+Tous l'approuvèrent.
+
+Cependant Balthazar avait d'office distribué les coupes à ses voisins immédiats, gardant la plus belle pour lui-même. Elle fut emplie d'un liquide épais et brun. Il fit la libation à la mémoire du grand Nabuchodonosor, vainqueur du peuple juif, puis tendit la coupe à sa favorite qui, rieuse, la vida d'un trait.
+
+La même liqueur fut versée par des esclaves à tous les assistants à la fois. Dhi-Sor, qui l'avait portée à ses lèvres, s'arrêta soudain de boire.
+
+--- Méfions-nous, dit-il. Il y a là-dedans tout un mélange de drogues. Je m'y connais.
+
+L'Arya du sud signala la présence d'un extrait de chanvre, et le petit homme de Cathaï du suc de la fleur de pavot.
+
+--- Balthazar sait conduire une orgie, fit Adamastor. Combiner ainsi excitants et stupéfiants ! Si cela enlève la virilité aux hommes, du moins les cerveaux subissent-ils des alternatives d'abattement et d'exaltation d'un assez curieux effet ...
+
+--- Mais c'est une variété de cet élixir que dans mon pays on nomme nepanthis, fit un étranger qui se trouvait près de lui.
+
+---
+
+Quoi qu'il en soit, le liquide parut agir instantanément. L'ivresse des uns prit un caractère de fièvre ; les autres, devenus silencieux, semblaient prêts à tomber en d'étranges rêves. Quant aux femmes, la vertu passive du mélange avait, au contraire, surexcité en elles le désir d'amour. Le désordre se mit peu à peu dans la salle. Les amis se rapprochaient les uns des autres, les femmes dédaignées de leurs maris s'en furent accabler leurs amants de reproches. Elles s'étaient couvertes la tête des fleurs qui jonchaient la table, mais en vain.
+
+Alors, sur les vastes divans, elles se réunirent et étendues, épiant les gestes des hommes, se concertèrent. Elles avaient, elles, gardé leur lucidité. Qu'est-ce que le plaisir de l'ivresse pour la femme qui attend le plaisir d'amour ? Il y avait des éclats de haine dans les yeux de la plupart. Elles considéraient d'un air méprisant ces hommes, leurs hommes, devenus incapables de rendre à leur beauté l'hommage désiré, parce qu'ils avaient porté les uns leurs caresses ailleurs, parce qu'ils s'étaient les autres grisés comme des esclaves, parce que les passions contre nature les avaient efféminés. Et ce Balthazar, que faisait-il auprès de cette fillette vicieuse, dont les caresses le préparaient seulement à l'étreinte des gitons ? Leur chair noble et pure, saine et puissante, s'étalait nue en protestation contre la veulerie faisandée des hommes.
+
+Car la plupart avaient quitté leurs robes légères, et voici maintenant que, deux par deux, elles s'accouplaient. Celle aux seins débordants, à la croupe arrondie, recherchait celle à la poitrine menue, aux jambes longues et nerveuses. Les blondes se soumettaient aux caprices des brunes.
+
+La musique des harpes s'était faite plus légère ; des odeurs d'encens et de benjoin flottaient à travers la salle immense ; la lumière des grands flambeaux, plantés droit dans leurs trépieds, avait bleui ...
+
+---
+
+Soudain Balthazar se dressa. Son œil morne s'était éveillé et son regard fixait l'une des tentures qui pendaient dans la pénombre des colonnes.
+
+[Pl. 15. --- Suzanne accusée d'Adultere. _Ant. Coypel inv._ _J.-B. Poilly sc._]()
+
+--- Qui donc a tracé ces mots que j'aperçois ? dit-il.
+
+On s'empressa autour du souverain. On s'efforça de le calmer. Sans doute était-il victime d'une hallucination.
+
+Mais il insistait et son regard, devenu terrible, sommait le grand prêtre de lui donner une réponse.
+
+Un flambeau fut apporté devant la tenture. Et, en effet, on aperçut une inscription mal effacée sur un drap. Le grand prêtre et ses voisins parvinrent à lire les trois mots qui se détachaient l'un auprès de l'autre :
+
+MANE THECEL PHARES
+
+--- Qui a tracé ces mots ? répétait Balthazar.
+
+--- Ce doit être quelque mauvais plaisant, fil le maître des cérémonies, qui craignait qu'un incident fâcheux pour lui ne résultât de la découverte de l'inscription.
+
+--- Et qui donc ?
+
+--- Nous n'avons vu personne, firent le grand prêtre et les courtisans.
+
+Le chef des mages s'approchait à cet instant.
+
+--- Qui a tracé ces mots ? répétait Balthazar, dont la pupille dilatée exprimait maintenant une véritable terreur.
+
+--- Des mots ne peuvent se tracer seuls, répondit le mage, assez content de contredire le grand prêtre, avec lequel il se trouvait fréquemment en compétition. Des mots ne se tracent point seuls. Ils ont été écrits par une main.
+
+--- Une main ! Une main ! reprit Balthazar, oui, je l'ai vue, je l'ai vue tout à l'heure qui courait sur le rideau.
+
+--- Je l'ai vue aussi, fit le maître des cérémonies.
+
+--- Nous l'avons vue, firent tous les courtisans.
+
+La nouvelle se répandit rapidement d'une extrémité à l'autre de la salle. Une main mystérieuse venait d'apparaître sur le mur !
+
+MANE THECEL PHARES
+
+Chacun, à la vérité, connaissait le sens de l'inscription. C'était un dicton populaire, une phrase que les commères jetaient fréquemment aux marchands truqueurs de poids.
+
+--- Vous l'avez dû entendre, dit Mat-Shan. Elle peut se traduire ainsi : « Deux et deux ne font pas toujours quatre ! »
+
+--- Cela n'a vraiment point d'importance.
+
+--- Quelque convive l'aura, à mon avis, facétieusement tracée au charbon sur le lin ...
+
+Mais le roi paraissait s'abîmer en ses réflexions. L'idée fixe le poursuivait toujours.
+
+--- Je veux savoir pourquoi la main a tracé ces signes. Quelle est leur signification cachée, grand prêtre ?
+
+--- L'inscription n'est pas de caractère sacré. Elle est du langage vulgaire. Je pense, Majesté, que ceci est du ressort du très illustre mage. Lui saura vous dire quelle formule prophétique se dissimule derrière cette phrase d'apparence anodine.
+
+--- Parle ! Parle ! Mage.
+
+Tous dans la salle, massés maintenant, suivaient curieusement l'interrogatoire. Les femmes s'étaient délacées et, debout sur les divans, les peaux de bêtes, accrochées aux colonnes, elles écoutaient. La conviction du roi était peu à peu entrée dans les esprits : la griserie des hommes, la crédulité des femmes y avaient aidé. Et puis on était à une époque si troublée, rien d'étonnant à ce que des signes apparussent.
+
+Le mage paraissait fort embarrassé.
+
+--- C'est un présage de triomphe, dit-il enfin, un bon présage, un excellent présage. Quelque inquiétude régnait sur le front des convives. Qu'elle se dissipe ! Voici mon interprétation. Nous avons bu ce soir dans les vases sacrés des Hébreux. Au moment où Nabuchodonosor les enleva du Temple, le grand prêtre juif lui dit :
+
+« Ce crime ne restera pas impuni. Ta puissance rayonne sur le monde, Nabuchodonosor. Le châtiment divin s'appesantira peu à peu sur toi et tes enfants en catastrophe. Car Jéhovah, notre seigneur, a dit quand fut conclue l'alliance :--- Je suis le dieu jaloux et fort, et ma vengeance poursuivra les ennemis de mon peuple jusqu'à la quatrième génération. »
+
+« Ainsi avait parlé ce prêtre audacieux. Et, de fait, Nabuchodonosor et ses successeurs eurent quelques ennuis. Evilmerodack et Neriglissor régnèrent presque simultanément, l'un tenant la guerre, l'autre l'administration. Toi-même fus longtemps régent sous Laborosarchod. Vous avez gouverné le pays par séries de deux. Tu es le quatrième, Balthazar ! Des esprits pusillanimes auraient pu tenter d'effrayer. Je te dis : Continue de boire tranquillement. La main est venue infliger un démenti formel de la méchante prophétie du grand prêtre juif, auquel furent ravis ces vases mêmes. Deux et deux ne font pas toujours quatre ! »
+
+Il y eut dans toute l'assistance un soulagement. Les paroles du mage avaient rassuré les esprits. Tandis qu'il s'épongeait le front, après ce laborieux travail, dos serviteurs s'approchèrent, lui placèrent sur les épaules un manteau de pourpre et autour du cou un collier d'or. En même temps Balthazar déclarait que le mage était nommé troisième personnage du royaume.
+
+---
+
+Lui seul et quelques personnages ne paraissaient pas tout à fait convaincus. Des bruits fâcheux couraient, en effet, depuis un moment parmi les serviteurs. Meretçar passa rapidement, près de Mat-Shan et de ses amis.
+
+« La reine me fait appeler d'urgence, leur dit-il. On lui a rapporté de la ville je ne sais quelles mauvaises nouvelles. Elle se tient au courant de ce qui se passe ici. De sombres pressentiments l'assaillent ... »
+
+Cependant la gaieté était revenue dans la majeure partie de l'assistance et l'orgie reprit de plus belle. Les femmes, de nouveau, avaient essayé deréveiller l'ardeur amoureuse des hommes. Quelques amants qui sentaient leurs situations compromises, tentèrent, seuls, à l'ombre des colonnades, de satisfaire leurs maîtresses. Mais pour la plupart ils échouèrent et se couvrirent de ridicule.
+
+---
+
+... Soudain, on vit s'ouvrir la porte d'or qui communiquait avec les appartements de la reine, au haut d'un escalier de marbre. Tous les regards se tournèrent vers la souveraine elle-même qui descendait quelques marches à pas lents. Par dessus sa longue robe, elle avait jeté un voile violet. Sa beauté sévère éclipsa un moment celle de toutes les femmes qui prenaient part au banquet. Cependant, son visage paraissait fatigué, un grand cerne encadrait ses deux grands yeux clairs et purs.
+
+Un sentiment d'effroi et de honte avait saisi tous les assistants et Balthazar lui-même. Ils s'efforçaient de prendre une tenue correcte, tandis que les femmes nues se dissimulaient derrière les colonnes et les peaux de bêtes. Un calme respectueux avait brusquement succédé aux clameurs.
+
+On n'entendit dans ce silence qu'une seule voix : c'était la petite esclave persane, crispée sur le corps de Balthazar, qui riait à gorge déployée, regardant la reine, d'un rire de moquerie et de défi.
+
+Son succès fut de brève durée. Balthazar, en effet, avait brusquement saisi un grand poignard au manche d'émeraude et, d'un geste sûr, l'avait planté tout entier dans la poitrine de sa favorite ! Elle tomba morte, les bras en croix, les jambes écartées, et pas une goutte de sang ne sortait de la plaie.
+
+Cependant, Balthazar s'était retourné vers la reine, et, tremblant à nouveau, il attendait qu'une parole, qu'une sentence tombât de sa bouche.
+
+Elle rejeta enfin son voile.
+
+« O roi, dit-elle, vis éternellement ! Que tes pensées ne te troublent pas, que ton visage ne change pas de couleur ! »
+
+« Une main a tracé sur la toile la mystérieuse inscription. Mais ne crois point ce que t'a dit le mage. Je sais que la tournure des événements n'est point bonne. »
+
+« Ecoute, il y a dans ton royaume un homme qui porte vraiment en lui l'esprit des deux saints. Il possède l'intelligence et la sagesse. Aussi le roi Nabuchodonosor l'avait-il établi chef de tous les astrologues et devins de la Chaldée. »
+
+« Il importe que le sens de l'inscription soit connu sans tarder. Fais venir Daniel l'Hébreu. Il saura trouver aisément le mot de l'énigme ! »
+
+La reine s'était à nouveau couvert le front de son voile violet. Elle remonta les marches et les portes d'or se refermèrent derrière elle.
+
+---
+
+Des messagers furent immédiatement expédiés au quartier juif. Ils avaient ordre de ramener le prophète de gré ou de force.
+
 ...

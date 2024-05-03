@@ -10,7 +10,7 @@
 
 ### Bibliothèque des Curieux.
 
-#### 4. Rue de Furstenberg, 4.
+#### 4, Rue de Furstenberg, 4.
 
 ---
 

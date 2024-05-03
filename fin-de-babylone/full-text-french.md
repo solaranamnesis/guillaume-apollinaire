@@ -3157,4 +3157,34 @@ Les hommes, soudain dégrisés, se redressèrent, les yeux hagards ! Ils aperçu
 
 Fin de Babylone. --- Au quartier juif. --- Le retour à Lutèce.
 
-...
+Quand les soldats de Cyrus eurent satisfait leur désir d'amour, Balthazar, ses princes, ses ministres, ses femmes furent passés par les armes. Babylone fut mise à feu et à sang. Ceux qui tentèrent de résister furent torturés, écrasés sous les roues de fer des chars, coupés à la scie, tailladés au couteau, puis ébouillantés.
+
+Jamais Cyrus n'avait exercé répression plus terrible. Mais il fallait que fut battue l'orgueilleuse puissance de la cité quatre et cinq fois millénaire. Elle ne se releva pas de ce coup.
+
+---
+
+Vietrix prit refuge chez ses amis du quartier juif. Le peuple de Dieu avait, en effet, la faveur du conquérant. Nephtali lui conseilla simplement, par prudence, de changer d'identité pendant quelques jours.
+
+--- Fais-toi appeler Lévi par exemple, lui dit le bon vieillard. Cela n'engage à rien et cela t'aidera peut-être par ces temps troublés à réaliser quelques bonnes petites affaires.
+
+Au soir, son esclave Anouké, qu'il avait sauvée, mais qui avait tremblé toute la journée, lui dit, se penchant sur son épaule :
+
+--- Je suis à loi, prends-moi ...
+
+--- Non, répondit Vietrix.
+
+---
+
+Il conduisit à Lutèce la petite Ibère, qui appartenait à une noble famille de la péninsule. L'un et l'autre n'étaient point fâchés de fuir l'Orient pervers et sanguinaire. Vietrix regrettait seulement ses amis, le fantaisiste Dhi-Sor, l'érudit Poladamaslor, le doux Mat-Shan.
+
+Les Celtes s'étaient répandus dans toute la Gaule. Et le père Vietrix avait notablement accru ses affaires ...
+
+---
+
+... Le druide prit sa serpe d'or et voua leurs jeunesses unies aux claires divinités des eaux, des vallons, des forêts. Des couronnes de gui furent tressées sur leur front. Ah ! ce n'étaient plus là les sombres rites de Babylone-la-Morte ! ...
+
+---
+
+Ici se termine leur histoire. Ils furent heureux et ils eurent beaucoup d'enfants, qui, par un miracle singulier, portèrent sur le corps et transmirent à leurs descendants, dont quelques-uns vivent encore en Seine-et-Oise, le signe sacré, la croix gammée, l'antique svastica :
+
+[]()

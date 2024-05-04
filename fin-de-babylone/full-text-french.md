@@ -1757,7 +1757,7 @@ Et, en effet, la peste se mit dans l'armée. En quelques jours deux cent mille h
 
 --- Hélas ! reprit Phalazar, contre nous qui étions entrés en révolte, selon l'usage, à la mort du roi précédent, le souverain de Ninive réussit mieux ...
 
-[Pl. 10. --- Suzanne au Bain. _Guido Reni inc._ _De Villers sc._]()
+[Pl. 10. --- Suzanne au Bain. _Guido Reni inc._ _De Villers sc._](https://commons.wikimedia.org/wiki/File:Susanna_en_de_ouderlingen,_RP-P-OB-62.051.jpg)
 
 ---
 

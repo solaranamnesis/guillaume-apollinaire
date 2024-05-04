@@ -1541,7 +1541,7 @@ Les deux savants donnèrent ensuite au jeune Gaulois quelques renseignements sur
 
 « Les vagues, comme des montagnes, couvraient la terre ; les êtres vivants étaient terrifiés ; les hommes cherchaient leur salut, luttant dans les ténèbres ; le frère ne voyait pas son frère ; les hommes ne se reconnaissaient pas entre eux. Les dieux, épouvantés eux-mêmes, craignirent cet orage : ils s'avancèrent vers Ann pour le conjurer et, comme des chiens timides, ils se cachaient dans les coins ! »
 
-[Pl. 9.]()
+[Pl. 9. --- La Mort de Babylone par G.-A. Rochegrosse. _Photo Braun et Cie._](https://cdn.solaranamnesis.com/GuillaumeApollinaire/plate-9.jpeg)
 
 « La déesse Istar criait comme une femme en peine. Elle parlait ainsi : »
 
@@ -2843,7 +2843,7 @@ Vietrix et Mat-Shan sortirent ensemble.
 
 []()
 
-[Pl. 14. --- Suzanne surprise au Bain par les Vieillards. _Ant. Coypel inv. et sc._]()
+[Pl. 14. --- Suzanne surprise au Bain par les Vieillards. _Ant. Coypel inv. et sc._](https://cdn.solaranamnesis.com/GuillaumeApollinaire/plate-14.jpeg)
 
 []()
 

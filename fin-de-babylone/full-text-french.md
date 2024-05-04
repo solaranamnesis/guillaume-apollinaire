@@ -723,7 +723,7 @@ Nephtali reprit son récit. Sopphâ avait revêtu une belle tunique dorienne, tr
 
 « En effet, commença Nephtali, les événements s'accomplirent. Nabuchodonosor, qui avait déjà fait une première apparition en Judée, revint deux années plus tard à la tête d'une forte armée. De quels éléments disparates n'était-elle pas composée ! elle contenait, avec son noyau d'infanterie chaldéenne et babylonienne, des escadrons de cavalerie scythe et mède et même des hoplites grecs. Ainsi des mercenaires de tous pays accouraient au service de la grande Babylone. »
 
-[Pl. 5. --- L'Histoire de Suzanne. 1. --- Suzanne surprise au bain par les deux vieillards.]()
+[Pl. 5. --- L'Histoire de Suzanne. 1. --- Suzanne surprise au bain par les deux vieillards. _H. Aldegraver inv. et sc._](https://www.metmuseum.org/art/collection/search/428069)
 
 « Joachim, qui avait livré au roi une partie des trésors du temple, se prépara à résister selon ses moyens. Mais, sur ces entrefaites, à la suite d'une maladie, il dut se coucher avec ses ancêtres. »
 

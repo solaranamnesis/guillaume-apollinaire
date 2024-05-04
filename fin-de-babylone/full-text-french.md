@@ -889,7 +889,7 @@ L'après-midi se passa de la plus agréable manière. On devait le lendemain arr
 
 « Quant à la ville, il fut décidé qu'elle serait démolie et brûlée. Mais non au hasard de la fureur des soldats ! Un des grands officiers de la couronne, Nabasharadar, fut délégué pour en effectuer la destruction méthodique. Le temple fut dépouillé de ses lambris précieux, les colonnes et les ouvrages d'airain du temps de Salomon furent brisés et les morceaux empaquetés dans des sacs afin de prendre le chemin de la Chaldée. La maçonnerie fut ensuite renversée. Les blocs roulèrent au pied de la colline dans le ravin de Cédron. »
 
-[Pl. 6. --- L'Histoire de Suzanne. 2. --- Les vieillards accusent Suzanne d'adultère.]()
+[Pl. 6. --- L'Histoire de Suzanne. 2. --- Les vieillards accusent Suzanne d'adultère. _H. Aldegraver inv. et sc._](https://www.metmuseum.org/art/collection/search/428285)
 
 « Ceux qui restaient de la garnison, les prêtres, les scribes, les gens de la haute classe durent prendre le chemin de l'exil. La mortalité fut si cruelle que le convoi ne comprenait guère plus de huit cents personnes ! Le petit peuple de la banlieue fut épargné. On lui distribua les terrains des bannis. »
 

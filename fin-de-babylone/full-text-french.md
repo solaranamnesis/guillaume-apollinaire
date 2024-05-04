@@ -2981,7 +2981,7 @@ La musique des harpes s'était faite plus légère ; des odeurs d'encens et de b
 
 Soudain Balthazar se dressa. Son œil morne s'était éveillé et son regard fixait l'une des tentures qui pendaient dans la pénombre des colonnes.
 
-[Pl. 15. --- Suzanne accusée d'Adultère. _Ant. Coypel inv._ _J.-B. Poilly sc._]()
+[Pl. 15. --- Suzanne accusée d'Adultère. _Ant. Coypel inv._ _J.-B. Poilly sc._](https://digitalcollections.universiteitleiden.nl/view/item/1629552)
 
 --- Qui donc a tracé ces mots que j'aperçois ? dit-il.
 

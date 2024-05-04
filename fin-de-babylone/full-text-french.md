@@ -1287,7 +1287,7 @@ Cependant chacun prenait place sur les coussins et les fillettes, sagement, s'in
 
 En Égypte, musiciennes et danseuses formaient une caste à part, élevées dans des couvents où on leur enseignait tous les arts et même ceux de l'amour. Jolies, cultivées, elles se vendaient fort cher. Anouké, pour son compte, en possédait en location une demi-douzaine. Mais elle se gardait de les prostituer à ses clients de passage. Chacune de ces petites avait un amant sérieux en titre et un amant de cœur.
 
-[Pl. 8. --- L'Histoire de Suzanne. 4. --- Les vieillards lapidés par le peuple. _H. Aldegraver inv. et sc._]()
+[Pl. 8. --- L'Histoire de Suzanne. 4. --- Les vieillards lapidés par le peuple. _H. Aldegraver inv. et sc._](https://www.metmuseum.org/art/collection/search/428288)
 
 Vêtues de robes collantes mais relativement épaisses, elles exécutèrent des pas compliqués et d'un sentiment assez voluptueux. Elles prenaient surtout admirablement les poses hiératiques : leurs yeux se perdaient dans un immobile délire et leurs bras se levaient comme des serpents.
 

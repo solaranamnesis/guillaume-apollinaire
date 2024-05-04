@@ -2523,7 +2523,7 @@ D'autres statues de dieux, tous les dieux secondaires babyloniens, se dressaient
 
 Cependant la foule immense remplissait déjà le temple. Les prêtres des diverses catégories, égorgeurs ou libateurs, étaient à leur poste. Les prêtres pyrophores répartis partout à travers la salle, tenaient à la main de grands flambeaux qui jetaient de puissants reflets sur les statues d'or massif. Les hiérodules avaient été partagés, hommes, femmes, eunuques ou enfants, auprès de leurs divinités protectrices. Pour une si exceptionnelle cérémonie, les servantes d'Istar étaient toutes venues au temple de Bel.
 
-[Pl. 13. --- Suzanne et les Vieillards. _J.-B. de Troy inv._ _L. Cars sc._]()
+[Pl. 13. --- Suzanne et les Vieillards. _J.-B. de Troy inv._ _L. Cars sc._](https://commons.wikimedia.org/wiki/File:Susanna_and_the_Elders_MET_DP809511.jpg)
 
 Le grand prêtre, qui avait coiffé la tiare d'or, reçut sur le parvis Balthazar et la reine. L'un et l'autre avaient le front ceint de grands bandeaux de joaillerie et le large manteau à franges d'or sur les épaules. Le roi prit place sur un fauteuil peu élevé et la reine devant lui, sur un tabouret.
 

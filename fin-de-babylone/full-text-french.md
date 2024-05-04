@@ -487,9 +487,9 @@ Il retrouva une relative paix d'esprit quand le vieillard eut été introduit da
 
 Vietrix écoutait fort intéressé. Il recherchait toujours la conversation des vieillards. La vision des jeunes gens est courte. Le vieux Nephtali, tel était le nom de l'Israélite, avait promis de leur réciter quelques-unes des prophéties sacrées de sa nation. Il concevait que Vietrix, avant d'entreprendre sa longue randonnée, fût au courant de l'histoire de ce peuple juif dont les uns lui parlaient avec crainte, les autres avec haine ; race privilégiée, race maudite ? On ne savait au juste, l'histoire de la grande Babylone était du reste liée à celles de Juda et des autres nations orientales depuis pas mal d'années. Vietrix avait déjà entendu dire cela. Le vieillard l'affirmait à nouveau.
 
-[Pl. 4a. --- Suzanne au Bain. Surprise par les Vieillards.](https://www.metmuseum.org/art/collection/search/432102)
+[Pl. 4a. --- Suzanne au Bain. Surprise par les Vieillards. _Georges Pencz inv. et sc._](https://www.metmuseum.org/art/collection/search/432102)
 
-[Pl. 4b. --- Suzanne au Bain. Surprise par les Vieillards.](https://www.metmuseum.org/art/collection/search/432103)
+[Pl. 4b. --- Suzanne au Bain. Surprise par les Vieillards. _Georges Pencz inv. et sc._](https://www.metmuseum.org/art/collection/search/432103)
 
 Sopphâ, la poétesse, prêtait également à l'ordinaire une oreille attentive. Ne saurait-elle tirer de ces récits épiques une fructueuse leçon ? Cependant, la tête indifférente de son esclave noire posée sur son ventre blanc, elle paraissait ce soir un peu nerveuse, agacée ...
 

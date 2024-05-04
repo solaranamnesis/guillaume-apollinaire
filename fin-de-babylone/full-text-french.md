@@ -66,6 +66,8 @@
 
 ---
 
+[Pl. 1. --- La Mort de Sardanapale. _Eug. Delacroix inv._](https://commons.wikimedia.org/wiki/File:Mort_de_Sardanapale_-_Eug%C3%A8ne_Delacroix_-_Mus%C3%A9e_du_Louvre_Peintures_RF_2346.jpg)
+
 # Chapitre Premier.
 
 ## Le Départ de Lutèce.

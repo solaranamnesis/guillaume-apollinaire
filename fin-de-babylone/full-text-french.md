@@ -2099,7 +2099,7 @@ Les glaces de la chambre d'honneur ne la satisfirent point de prime abord, et el
 
 Elle réclama les ténèbres, mais quand l'acte eut été consommé, le désir de partir tout de suite l'avait quittée. Entre les bras de l'homme jeune et fort, sa volonté s'était fondue, et elle lui avait le mieux du monde rendu son étreinte. Elle le pria donc de rouvrir la fenêtre qui donnait sur les jardins et prit sur le divan une confortable position. Puis elle le questionna longuement. Quand une femme a joui par un homme, tout l'intéresse de lui, mais fût-il un génie, peu de chose auparavant.
 
-[Pl. 12. --- Suzanne et les Vieillards. _Le Dominiquin inv._](https://cdn.solaranamnesis.com/GuillaumeApollinaire/plate-12small.jpeg)
+[Pl. 12. --- Suzanne et les Vieillards. _Le Dominiquin inv._](https://cdn.solaranamnesis.com/GuillaumeApollinaire/plate-12small.jpg)
 
 Vietrix lui conta ses aventures, assis au rebord du divan, tandis que la belle Suzanne se vautrait voluptueusement autour de lui. Ses hanches puissantes, ses seins abondants mais toujours durs se reflétaient à l'infini dans les miroirs habilement disposés. Elle avait pris la main de son amant et s'efforçait distraitement de l'égarer. La bonne déesse Istar et le phallus veillaient sur ce tableau familial.
 

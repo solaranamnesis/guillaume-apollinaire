@@ -1981,7 +1981,7 @@ Le prêtre hochait la tête.
 
 --- Je suis vraiment confus, dit Vietrix. Mais n'ai-je pas à craindre de cette grande dame quelques rebuffades, une mauvaise volonté qui me gêneront peut-être ?
 
-[Pl. 11. --- Suzanne Surprise par les Vieillards. _P.-P. Rubens inv._ _L. Vorsterman sc._]()
+[Pl. 11. --- Suzanne Surprise par les Vieillards. _P.-P. Rubens inv._ _L. Vorsterman sc._](https://commons.wikimedia.org/wiki/File:Suzanna_en_de_ouderlingen,_RP-P-OB-75.847.jpg)
 
 --- Elle se soumettra aux rites, avec plaisir je ne puis l'affirmer, mais avec grandeur et sérénité d'âme ... Celle-ci est instruite, en effet. Dans ses salons ont passé tous les philosophes et poètes et astrologues babyloniens. Elle sait pour quels impérieux motifs la prostitution, ne fût-ce qu'une fois en sa vie, lui est imposée.
 

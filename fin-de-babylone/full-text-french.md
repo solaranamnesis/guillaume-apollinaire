@@ -180,7 +180,7 @@ Ce fut dans un établissement de troisième ordre, fréquenté par la lie du por
 
 « C'était la coutume d'inviter au palais royal les ambassadeurs, capitaines de navire ou gros marchands de passage. Le palais, en ce temps, était, du reste, moins luxueux et confortable que les grandes hôtelleries modernes. Des gens venus de l'est avaient précisément débarqué ces derniers jours. Ils apportaient les étoffes de leur pays dont ils avaient offert des échantillons au roi et à sa fille. Le bénévole Nann pria donc leur chef, qui répondait au nom d'Euxène, au banquet. C'était un petit homme laid et insignifiant. Placé auprès de lui, à un bout de table, je m'aperçus à peine de sa présence. Il est vrai que quelques libations du bon liquide doré de ma colline avaient, dès le début, détaché mon esprit des vaines contingences de ce bas monde. »
 
-[Pl. 2. --- L'Évanouissement d'Esther.]()
+[Pl. 2. --- L'Évanouissement d'Esther.](https://commons.wikimedia.org/wiki/File:Antoine_Coypel_-_Esther_and_Ahasuerus_-_M.Ob.197_MNW_-_National_Museum_in_Warsaw.jpg)
 
 « Au dessert, Gyptis se leva. Elle tenait en main une coupe, celte coupe même qui avait été par un artiste modelée sur son sein. Il nous était, du reste, loisible de juger de la qualité exacte du travail. Un léger voile flottait sur les épaules de la vierge, un de ces voiles de gaze fine que ces commerçants de l'est avaient offert au roi. Sa poitrine merveilleuse apparaissait par moments et les lignes souples de son corps se devinaient sous les étoffes estivales. C'était, j'ai oublié de vous le dire, en plein été, au cœur de la canicule, que les fêtes de la Mer avaient lieu. Gyptis était si belle, belle pour tous, que me considérant d'ores et déjà comme son légitime propriétaire, j'en éprouvais une légère jalousie. »
 
@@ -339,7 +339,7 @@ La poudre d'or fut pesée dans la petite balance qu'Aaron portait toujours sur l
 
 Il enfourcha son cheval et partit en hâte.
 
-[Orgies de Sardanapale.]()
+[Pl. 3. --- Orgies de Sardanapale. _J. van Winghen inv. _R. Sadeler sc.](https://commons.wikimedia.org/wiki/File:Raphael_Sadeler_I_after_Joos_van_Winghe,_Sardanapalus_among_the_Concubines,_1589,_NGA_66779.jpg)
 
 []()
 

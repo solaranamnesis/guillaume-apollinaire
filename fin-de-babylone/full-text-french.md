@@ -130,15 +130,15 @@ C'est une femme qui doit te sauver. Cette femme, je ne sais qui elle est. Je voi
 
 Ce disant le druide s'était éloigné. Vietrix regarda le signe qu'il avait tracé. C'était la croix aux ailes fuyantes :
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/croixgamee.jpeg)
 
 Mais Vietrix la connaissait bien. Il l'avait vue reproduite sur certains modèles très anciens de bijoux. Et il se souvenait, en effet, qu'une signification religieuse était attachée à cette croix. La tradition, comme tant d'autres, s'en était perdue.
 
 --- Mon destin n'est point ici ! Là-bas, vers l'Orient ... Une femme sous un signe ? Et comment ? Bah ! Je puis toujours essayer ...
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig01.jpeg)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig07.jpeg)
 
 # Chapitre 2.
 
@@ -239,9 +239,9 @@ La manœuvre achevée, le capitaine s'était penché vers lui.
 
 ... Il y avait un tremblement dans la voix du vieux marin.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig02.jpeg)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig03.jpeg)
 
 # Chapitre 3.
 
@@ -343,7 +343,7 @@ Il enfourcha son cheval et partit en hâte.
 
 [Pl. 3. --- Orgies de Sardanapale. _J. van Winghen inv. _R. Sadeler sc.](https://commons.wikimedia.org/wiki/File:Raphael_Sadeler_I_after_Joos_van_Winghe,_Sardanapalus_among_the_Concubines,_1589,_NGA_66779.jpg)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig10.jpeg)
 
 # Chapitre 4.
 
@@ -373,7 +373,7 @@ Le philosophe fit au jeune voyageur le plus cordial accueil.
 
 Et Vietrix figura une croix gammée :
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/croixgamee.jpeg)
 
 Pythagore réfléchit un instant :
 
@@ -429,9 +429,9 @@ Ainsi, ce bandit de Canabal l'avait froidement lâché, il abandonnait son passa
 
 Bah ! cela n'avait pas d'importance ! Un léger retard ! Et quant à la femme !... Cependant, dans la mauvaise chambre qu'il avait louée rue des Calfats, Vietrix se sentit toute la nuit bizarrement furieux ...
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig11.jpeg)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig09.jpeg)
 
 # Chapitre 5.
 
@@ -495,9 +495,9 @@ Vietrix écoutait fort intéressé. Il recherchait toujours la conversation des 
 
 Sopphâ, la poétesse, prêtait également à l'ordinaire une oreille attentive. Ne saurait-elle tirer de ces récits épiques une fructueuse leçon ? Cependant, la tête indifférente de son esclave noire posée sur son ventre blanc, elle paraissait ce soir un peu nerveuse, agacée ...
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig04.jpeg)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig05.jpeg)
 
 # Chapitre 6.
 
@@ -707,7 +707,7 @@ Vietrix la suivit sans se faire prier.
 
 « Littérature ! se disait-il cependant. Cela n'est que littérature ! Pourquoi a-t-elle éloigné l'esclave ? »
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig05.jpeg)
 
 # Chapitre 7.
 
@@ -837,9 +837,9 @@ Son joli corps brun était tout marbré des coups de lanière.
 
 --- Ah ! tu m'aimes et tu n'aimes point les hommes ! Eh bien ! tu souffriras encore. Etranger, prends-la, je veux que tu la prennes sous mes yeux.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 8.
 
@@ -935,9 +935,9 @@ L'après-midi se passa de la plus agréable manière. On devait le lendemain arr
 
 « Oui, Babylone, grisée de victoires, gorgée d'or et de dépouilles, ivre de toutes les luxures, Babylone rayonne sur les empires et sur les mers ! »
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 9.
 
@@ -1023,9 +1023,9 @@ Le marchand phénicien, correspondant de la maison paternelle de Lutèce, lui av
 
 Chez le marchand, Vietrix se lesta donc de bons talents de Phénicie. Il compléta sa garde-robe et, profitant d'une caravane, prit résolument le chemin de Babylone.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 10.
 
@@ -1097,9 +1097,9 @@ Des promeneurs circulaient parmi cette fourmilière en travail. C'était, en eff
 
 Vietrix loua une chambre qui donnait juste sur le quai. Il se fit servir un fin repas : poulet farci, tranche de bosse de chameau, sauterelles grillées, but quelques verres d'un excellent vin de pays et, la conscience tranquille, s'en fut coucher.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 11.
 
@@ -1161,9 +1161,9 @@ Cependant le soir tombait. Sur les bords de l'Euphrate, les habitants du quartie
 
 « Si je t'oublie, ô Jérusalem, que ma droite se dessèche ! Que ma langue s'attache à mon palais si je ne me souviens plus de toi, si je ne place pas Jérusalem au-dessus de toutes mes joies ! »
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 12.
 
@@ -1235,7 +1235,7 @@ Au cours du repas, quand le vin léger de Chypre et de Syrie porta à la confide
 
 --- C'est cela, filons au lupanar ! grommela Poladamastor en sa barbe.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 13.
 
@@ -1369,9 +1369,9 @@ En même temps deux autres femmes frappaient à coups redoublés avec des verges
 
 --- Ne t'inquiète pas, mon chéri. Mon baiser coûte cher si je me vends. Mais à toi je me donne. C'est gratuit. N'aie crainte. Tu dois être homme de lettres comme ces messieurs. Je sais bien que vous n'avez pas le sou ! ... Et puis, après tout, le prince est là pour un coup ! ... Pas plus, par exemple, fit-elle après une minute de réflexion.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 14.
 
@@ -1479,7 +1479,7 @@ Mais la petite résistait et maintenant se laissait aller à une véritable cris
 
 --- C'est que tu ne regardes pas les femmes. J'ai déjà rencontré quelque part sa sœur ou sa cousine. Quoi qu'il en soit, je la nomme Anouké. Ce nom léger et doux lui convient mieux qu'à la courtisane égyptienne dont je goûtai, ce soir, le délicieux nectar ... Allons, adieu, mon vieux Nephtali, à demain ...
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 15.
 
@@ -1649,7 +1649,7 @@ Néanmoins, il rabaissa la robe, puis légèrement lui caressa les cheveux et le
 
 Et quand elle fut partie, il songea, il songea longuement, inquiet, sans but. Le mal du pays peut-être ?
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 16.
 
@@ -1835,9 +1835,9 @@ Babylone s'était donc révoltée et toutes les tribus du sud et de l'est étaie
 
 « En quel endroit du désert rencontrerais-je maintenant ce repaire de lions ? »
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 17.
 
@@ -1919,7 +1919,7 @@ Et bon gré, mal gré, il ne pouvait la considérer comme une petite bête qui l
 
 Et, légère, elle disparut.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 18.
 
@@ -2009,7 +2009,7 @@ Le prêtre hochait la tête.
 
 « Nous n'avons pas voulu qu'un être pût dire : --- Cet autre être est à moi seul ! --- Nous ne l'avons pas voulu pour sa tranquillité à lui, pour la tranquillité de l'État, pour la gloire de la déesse et le plaisir de l'humanité future ! Tout à l'heure, une femme réputée pour sa vertu va venir se prostituer entre tes bras. Songe à faire exactement, brillamment ton devoir, ainsi tu rempliras le rôle social qu'à prévu le législateur. Voici le petit salon des glaces, je t'y laisse. Il y a sur la table quelques rafraîchissements. Veuille seulement, pour plus de commodité et afin de ménager les susceptibilités de la dame, me remettre directement le petit cadeau d'usage ... Oh ! il est laissé à ton entière discrétion ! »
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 19.
 
@@ -2085,7 +2085,7 @@ Suzanne fit seulement arrêter la chaise chez un marchand de fleurs, le mieux ac
 
 Suzanne fit semblant de ne pas entendre, mais, furieuse, elle ferma hermétiquement les rideaux de sa chaise.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 20.
 
@@ -2275,7 +2275,7 @@ La nuit tombait. La belle conteuse se tenait étendue sur le dos, la tête dans 
 
 Vietrix considéra en cette posture sa maîtresse, très légitime épouse de M. le directeur de l'enregistrement : en effet, elle n'était plus la chaste Suzanne.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 21.
 
@@ -2469,9 +2469,9 @@ Sur ces tristes paroles, les visiteurs se retirèrent. Vietrix lui-même était 
 
 Mais, chose singulière, depuis quelque temps il avait moins envie de rechercher la femme née sous la croix gammée. Sa maison en ordre, une bonne cuisinière, quelques amis, il ne se sentait pas mal ainsi ...
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 22.
 
@@ -2609,7 +2609,7 @@ Le grand prêtre s'inclina devant Bel, offrant les prémices des jeunes Babyloni
 
 « Bel ! fondateur, seigneur du monde ! roi des esprits ! » répétait la foule, plus recueillie et comme emplie de crainte maintenant.
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 23.
 
@@ -2843,11 +2843,11 @@ Vietrix et Mat-Shan sortirent ensemble.
 
 --- Le grand prêtre a voulu sauver la face, dit-il. Mais je ne crois point qu'il soit satisfait. Les sacrifices ont été absolument inutiles. Ça va mal ! Ça va bien mal !
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 [Pl. 14. --- Suzanne surprise au Bain par les Vieillards. _Ant. Coypel inv. et sc._](https://cdn.solaranamnesis.com/GuillaumeApollinaire/plate-14.jpeg)
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Chapitre 24.
 
@@ -3209,7 +3209,7 @@ Les hommes, soudain dégrisés, se redressèrent, les yeux hagards ! Ils aperçu
 
 ---
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
 
 # Epilogue.
 
@@ -3245,4 +3245,4 @@ Les Celtes s'étaient répandus dans toute la Gaule. Et le père Vietrix avait n
 
 Ici se termine leur histoire. Ils furent heureux et ils eurent beaucoup d'enfants, qui, par un miracle singulier, portèrent sur le corps et transmirent à leurs descendants, dont quelques-uns vivent encore en Seine-et-Oise, le signe sacré, la croix gammée, l'antique svastica :
 
-[]()
+[](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)

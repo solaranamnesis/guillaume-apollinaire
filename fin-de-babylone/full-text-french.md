@@ -837,9 +837,9 @@ Son joli corps brun était tout marbré des coups de lanière.
 
 --- Ah ! tu m'aimes et tu n'aimes point les hommes ! Eh bien ! tu souffriras encore. Etranger, prends-la, je veux que tu la prennes sous mes yeux.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig06.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig07.jpeg)
 
 # Chapitre 8.
 
@@ -935,9 +935,9 @@ L'après-midi se passa de la plus agréable manière. On devait le lendemain arr
 
 « Oui, Babylone, grisée de victoires, gorgée d'or et de dépouilles, ivre de toutes les luxures, Babylone rayonne sur les empires et sur les mers ! »
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig01.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig07.jpeg)
 
 # Chapitre 9.
 
@@ -1023,9 +1023,9 @@ Le marchand phénicien, correspondant de la maison paternelle de Lutèce, lui av
 
 Chez le marchand, Vietrix se lesta donc de bons talents de Phénicie. Il compléta sa garde-robe et, profitant d'une caravane, prit résolument le chemin de Babylone.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig02.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig03.jpeg)
 
 # Chapitre 10.
 
@@ -1097,9 +1097,9 @@ Des promeneurs circulaient parmi cette fourmilière en travail. C'était, en eff
 
 Vietrix loua une chambre qui donnait juste sur le quai. Il se fit servir un fin repas : poulet farci, tranche de bosse de chameau, sauterelles grillées, but quelques verres d'un excellent vin de pays et, la conscience tranquille, s'en fut coucher.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig04.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig09.jpeg)
 
 # Chapitre 11.
 
@@ -1161,9 +1161,9 @@ Cependant le soir tombait. Sur les bords de l'Euphrate, les habitants du quartie
 
 « Si je t'oublie, ô Jérusalem, que ma droite se dessèche ! Que ma langue s'attache à mon palais si je ne me souviens plus de toi, si je ne place pas Jérusalem au-dessus de toutes mes joies ! »
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig11.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig10.jpeg)
 
 # Chapitre 12.
 
@@ -1235,7 +1235,7 @@ Au cours du repas, quand le vin léger de Chypre et de Syrie porta à la confide
 
 --- C'est cela, filons au lupanar ! grommela Poladamastor en sa barbe.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig09.jpeg)
 
 # Chapitre 13.
 
@@ -1369,9 +1369,9 @@ En même temps deux autres femmes frappaient à coups redoublés avec des verges
 
 --- Ne t'inquiète pas, mon chéri. Mon baiser coûte cher si je me vends. Mais à toi je me donne. C'est gratuit. N'aie crainte. Tu dois être homme de lettres comme ces messieurs. Je sais bien que vous n'avez pas le sou ! ... Et puis, après tout, le prince est là pour un coup ! ... Pas plus, par exemple, fit-elle après une minute de réflexion.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig06.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig03.jpeg)
 
 # Chapitre 14.
 
@@ -1479,7 +1479,7 @@ Mais la petite résistait et maintenant se laissait aller à une véritable cris
 
 --- C'est que tu ne regardes pas les femmes. J'ai déjà rencontré quelque part sa sœur ou sa cousine. Quoi qu'il en soit, je la nomme Anouké. Ce nom léger et doux lui convient mieux qu'à la courtisane égyptienne dont je goûtai, ce soir, le délicieux nectar ... Allons, adieu, mon vieux Nephtali, à demain ...
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig08.jpeg)
 
 # Chapitre 15.
 
@@ -1649,7 +1649,7 @@ Néanmoins, il rabaissa la robe, puis légèrement lui caressa les cheveux et le
 
 Et quand elle fut partie, il songea, il songea longuement, inquiet, sans but. Le mal du pays peut-être ?
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig05.jpeg)
 
 # Chapitre 16.
 
@@ -1835,9 +1835,9 @@ Babylone s'était donc révoltée et toutes les tribus du sud et de l'est étaie
 
 « En quel endroit du désert rencontrerais-je maintenant ce repaire de lions ? »
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig01.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig03.jpeg)
 
 # Chapitre 17.
 
@@ -1919,7 +1919,9 @@ Et bon gré, mal gré, il ne pouvait la considérer comme une petite bête qui l
 
 Et, légère, elle disparut.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig11.jpeg)
+
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig07.jpeg)
 
 # Chapitre 18.
 
@@ -2009,7 +2011,7 @@ Le prêtre hochait la tête.
 
 « Nous n'avons pas voulu qu'un être pût dire : --- Cet autre être est à moi seul ! --- Nous ne l'avons pas voulu pour sa tranquillité à lui, pour la tranquillité de l'État, pour la gloire de la déesse et le plaisir de l'humanité future ! Tout à l'heure, une femme réputée pour sa vertu va venir se prostituer entre tes bras. Songe à faire exactement, brillamment ton devoir, ainsi tu rempliras le rôle social qu'à prévu le législateur. Voici le petit salon des glaces, je t'y laisse. Il y a sur la table quelques rafraîchissements. Veuille seulement, pour plus de commodité et afin de ménager les susceptibilités de la dame, me remettre directement le petit cadeau d'usage ... Oh ! il est laissé à ton entière discrétion ! »
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig10.jpeg)
 
 # Chapitre 19.
 
@@ -2085,7 +2087,7 @@ Suzanne fit seulement arrêter la chaise chez un marchand de fleurs, le mieux ac
 
 Suzanne fit semblant de ne pas entendre, mais, furieuse, elle ferma hermétiquement les rideaux de sa chaise.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig09.jpeg)
 
 # Chapitre 20.
 
@@ -2275,7 +2277,7 @@ La nuit tombait. La belle conteuse se tenait étendue sur le dos, la tête dans 
 
 Vietrix considéra en cette posture sa maîtresse, très légitime épouse de M. le directeur de l'enregistrement : en effet, elle n'était plus la chaste Suzanne.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig08.jpeg)
 
 # Chapitre 21.
 
@@ -2469,9 +2471,9 @@ Sur ces tristes paroles, les visiteurs se retirèrent. Vietrix lui-même était 
 
 Mais, chose singulière, depuis quelque temps il avait moins envie de rechercher la femme née sous la croix gammée. Sa maison en ordre, une bonne cuisinière, quelques amis, il ne se sentait pas mal ainsi ...
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig04.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig05.jpeg)
 
 # Chapitre 22.
 
@@ -2609,7 +2611,7 @@ Le grand prêtre s'inclina devant Bel, offrant les prémices des jeunes Babyloni
 
 « Bel ! fondateur, seigneur du monde ! roi des esprits ! » répétait la foule, plus recueillie et comme emplie de crainte maintenant.
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig07.jpeg)
 
 # Chapitre 23.
 
@@ -2843,11 +2845,11 @@ Vietrix et Mat-Shan sortirent ensemble.
 
 --- Le grand prêtre a voulu sauver la face, dit-il. Mais je ne crois point qu'il soit satisfait. Les sacrifices ont été absolument inutiles. Ça va mal ! Ça va bien mal !
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig06.jpeg)
 
 [Pl. 14. --- Suzanne surprise au Bain par les Vieillards. _Ant. Coypel inv. et sc._](https://cdn.solaranamnesis.com/GuillaumeApollinaire/plate-14.jpeg)
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig03.jpeg)
 
 # Chapitre 24.
 
@@ -3209,7 +3211,9 @@ Les hommes, soudain dégrisés, se redressèrent, les yeux hagards ! Ils aperçu
 
 ---
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig02.jpeg)
+
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/fig09.jpeg)
 
 # Epilogue.
 
@@ -3245,4 +3249,4 @@ Les Celtes s'étaient répandus dans toute la Gaule. Et le père Vietrix avait n
 
 Ici se termine leur histoire. Ils furent heureux et ils eurent beaucoup d'enfants, qui, par un miracle singulier, portèrent sur le corps et transmirent à leurs descendants, dont quelques-uns vivent encore en Seine-et-Oise, le signe sacré, la croix gammée, l'antique svastica :
 
-[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/)
+[Fig.](https://cdn.solaranamnesis.com/GuillaumeApollinaire/croixgamee.jpeg)

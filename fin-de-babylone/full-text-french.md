@@ -184,7 +184,7 @@ Ce fut dans un établissement de troisième ordre, fréquenté par la lie du por
 
 [Pl. 2. --- L'Évanouissement d'Esther. _Ant. Coypel inv._ _J. Audran sc._](https://commons.wikimedia.org/wiki/File:Antoine_Coypel_-_Esther_and_Ahasuerus_-_M.Ob.197_MNW_-_National_Museum_in_Warsaw.jpg)
 
-« Au dessert, Gyptis se leva. Elle tenait en main une coupe, celte coupe même qui avait été par un artiste modelée sur son sein. Il nous était, du reste, loisible de juger de la qualité exacte du travail. Un léger voile flottait sur les épaules de la vierge, un de ces voiles de gaze fine que ces commerçants de l'est avaient offert au roi. Sa poitrine merveilleuse apparaissait par moments et les lignes souples de son corps se devinaient sous les étoffes estivales. C'était, j'ai oublié de vous le dire, en plein été, au cœur de la canicule, que les fêtes de la Mer avaient lieu. Gyptis était si belle, belle pour tous, que me considérant d'ores et déjà comme son légitime propriétaire, j'en éprouvais une légère jalousie. »
+« Au dessert, Gyptis se leva. Elle tenait en main une coupe, cette coupe même qui avait été par un artiste modelée sur son sein. Il nous était, du reste, loisible de juger de la qualité exacte du travail. Un léger voile flottait sur les épaules de la vierge, un de ces voiles de gaze fine que ces commerçants de l'est avaient offert au roi. Sa poitrine merveilleuse apparaissait par moments et les lignes souples de son corps se devinaient sous les étoffes estivales. C'était, j'ai oublié de vous le dire, en plein été, au cœur de la canicule, que les fêtes de la Mer avaient lieu. Gyptis était si belle, belle pour tous, que me considérant d'ores et déjà comme son légitime propriétaire, j'en éprouvais une légère jalousie. »
 
 « Et, en effet, la jeune fille avait fait le tour de la salle. Elle avait regardé tous les guerriers, ses prétendants, qui s'efforçaient de prendre des poses avantageuses. Elle les avait regardés et, dédaigneuse, avait passé. Elle était arrivée à l'extrémité de la table où modestement je me tenais étendu. Elle s'arrêta devant moi et lentement abaissa la coupe d'or qu'elle tenait élevée. Ah ! quel orgueil, quelle satisfaction m'emplirent le cœur à cet instant ! Je songeais à la déconvenue de mes concurrents, à ma flamme couronnée, à mon cap, à son golfe ! »
 
@@ -361,7 +361,7 @@ Le philosophe fit au jeune voyageur le plus cordial accueil.
 
 --- Babylone ?
 
---- C'est vers celte ville que l'activité du monde se concentre. D'autres pays sont simplement pays d'artistes ou de guerriers ou de marchands. Allez à Babylone, et vous connaîtrez, avant qu'elles ne disparaissent, les fastueuses, les grandioses merveilles que les mains des hommes ont pu édifier. Ensuite, vous pourrez revenir parmi nous discuter avec les penseurs et les rhéteurs d'esprit facile des vertus de l'espèce et de sa vanité.
+--- C'est vers cette ville que l'activité du monde se concentre. D'autres pays sont simplement pays d'artistes ou de guerriers ou de marchands. Allez à Babylone, et vous connaîtrez, avant qu'elles ne disparaissent, les fastueuses, les grandioses merveilles que les mains des hommes ont pu édifier. Ensuite, vous pourrez revenir parmi nous discuter avec les penseurs et les rhéteurs d'esprit facile des vertus de l'espèce et de sa vanité.
 
 ---
 

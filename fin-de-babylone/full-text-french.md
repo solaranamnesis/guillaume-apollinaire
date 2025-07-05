@@ -649,7 +649,7 @@ Ainsi le vieillard parlait-il. Et sa voix dans la nuit prenait des accents surhu
 
 « Des cris d'angoisse comme dans un premier enfantement. »
 
-« C'est la voix de la tille de Sion ! Elle soupire, elle étend les mains ! »
+« C'est la voix de la fille de Sion ! Elle soupire, elle étend les mains ! »
 
 « Malheureux que je suis, je succombe sous les meurtriers ! »
 

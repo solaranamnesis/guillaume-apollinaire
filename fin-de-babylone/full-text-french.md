@@ -945,7 +945,7 @@ L'après-midi se passa de la plus agréable manière. On devait le lendemain arr
 
 La croix gammée d'après Sopphâ. --- Mœurs unisexuelles. --- Double séparation. --- Chypre, terre du libre amour. --- Derniers jours de navigation. --- Débarquement à Tyr. --- La ville commerçante. --- Sacrifices humains. --- A la recherche de l'esclave. --- Expéditions infructueuses. --- Vers Babylone.
 
---- O ma maîtresse, dit Vietrix à Sopphâ, vois ce signe que d'aucuns nomment la croix gammée. Tu as étudié en de vieux livres, tu as été instruite par les paroles des sages athéniens, tu possèdes toi-même ce don merveilleux de divination que l'on nomme la poésie. Quelle est sa signification ? J'attends avec anxiété ton avis. Là où je trouverai l'exacte application du symbole, je dois m'arrêter. »
+--- O ma maîtresse, dit Vietrix à Sopphâ, vois ce signe que d'aucuns nomment la croix gammée. Tu as étudié en de vieux livres, tu as été instruite par les paroles des sages athéniens, tu possèdes toi-même ce don merveilleux de divination que l'on nomme la poésie. Quelle est sa signification ? J'attends avec anxiété ton avis. Là où je trouverai l'exacte application du symbole, je dois m'arrêter.
 
 Sopphâ réfléchit, puis un sourire illumina son visage.
 

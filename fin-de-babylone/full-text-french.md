@@ -1707,7 +1707,7 @@ Phalazar reprit son récit.
 
 « Salmanasar, Téglathphalazar 2 passèrent. Ce dernier put écrire sur une stèle : »
 
---- Je suis le roi qui, depuis le lever jusqu'au coucher du soleil, ai mis en fuite tous mes ennemis. »
+--- Je suis le roi qui, depuis le lever jusqu'au coucher du soleil, ai mis en fuite tous mes ennemis.
 
 --- Ce fut lui également, remarqua Nephtali, qui rendit le premier le royaume d'Israël tributaire de Ninive.
 

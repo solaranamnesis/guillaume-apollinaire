@@ -1485,7 +1485,7 @@ Mais la petite résistait et maintenant se laissait aller à une véritable cris
 
 ## Visite au Musée.
 
-Nouvelle vie du jeune Gaulois. --- Vietrix et Anouké. --- Visite au musée de Phalazar. --- Les origines humaines. --- --- Du chaos au déluge. --- Fondation de Babylone. --- Légende de Sargon. --- Le vol de la déesse Nana. --- Splendeur d'Hammourabi. --- Formation du royaume d'Assyrie. --- Découverte sur le corps d'Anouké.
+Nouvelle vie du jeune Gaulois. --- Vietrix et Anouké. --- Visite au musée de Phalazar. --- Les origines humaines. --- Du chaos au déluge. --- Fondation de Babylone. --- Légende de Sargon. --- Le vol de la déesse Nana. --- Splendeur d'Hammourabi. --- Formation du royaume d'Assyrie. --- Découverte sur le corps d'Anouké.
 
 Vietrix se fit peu à peu à sa nouvelle vie. Les mois passaient. Il avait poussé ses études linguistiques, et c'étaient les grands problèmes historiques qui l'intéressaient maintenant.
 

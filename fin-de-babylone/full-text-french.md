@@ -1799,7 +1799,7 @@ Babylone s'était donc révoltée et toutes les tribus du sud et de l'est étaie
 
 ---
 
-« Sennachérib succédaient Assarhaddon et Assurbanipal. Ce dernier ne craignit pas de s'enfoncer au plus profond de l'Égypte, ayant derrière lui des centaines de princes en révolte.
+« Sennachérib succédaient Assarhaddon et Assurbanipal. Ce dernier ne craignit pas de s'enfoncer au plus profond de l'Égypte, ayant derrière lui des centaines de princes en révolte. »
 
 --- Je pris la ville de Thèbes et mes mains la soumirent à la domination d'Assur et d'Istar ; je m'emparai de son argent, de son or, des pierres précieuses, des trésors du palais royal, des étoffes de laine et de lin ; des grands chevaux ; des princesses, des concubines, des esclaves ; de deux obélisques couverts de magnifiques sculptures et du poids de vingt-cinq mille talents, dressés devant la porte d'un temple ; je les enlevai de place et transportai ce butin jusqu'à Ninive, à travers les déserts ... ---
 

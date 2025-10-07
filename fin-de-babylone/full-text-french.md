@@ -1887,7 +1887,7 @@ Gloire de Nabuchodonosor. --- Ses successeurs. --- Babylone pacifique. --- Cyrus
 
 --- Passant, sûr que tu es né mortel, ouvre ton âme aux plaisirs ; il n'y a plus de jouissances pour celui qui est mort. Je ne suis que de la cendre, moi, jadis roi de la grande Ninive ; mais tout ce qui fut repas et boisson, tout ce qui fut amour, tout ce qui fut plaisir, je le possède encore. Je n'ai perdu que mes richesses et mon empire ! ---
 
-Jamais ne furent prononcées paroles plus impies. Voyez ces pierres alignées qui célèbrent la grandeur des rois : ils se vantent de leurs exploits guerriers, jamais de leurs délassements amoureux ! »
+« Jamais ne furent prononcées paroles plus impies. Voyez ces pierres alignées qui célèbrent la grandeur des rois : ils se vantent de leurs exploits guerriers, jamais de leurs délassements amoureux ! »
 
 ---
 
